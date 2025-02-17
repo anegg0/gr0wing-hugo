@@ -6,18 +6,6 @@ ignoreLogs = ["warning-goldmark-raw-html"]
 
 hasCJKLanguage = true
 
-# [permalinks]
-#   posts = "/blog/posts/:title/"
-#   categories = "blog/categories/:title/"
-#   about = "/blog/about/:title/"
-#   privacy-policy = "/blog/privacy-policy/:title/"
-#   subscribe = "/blog/subscribe/:title/"
-#   uncopyright = "/blog/uncopyright/:title/"
-
-# paginate= '3'
-# googleAnalytics = "UA-123-45"
-# disqusShortname = "anegg0"
-
 [markup]
   [markup.highlight]
     guessSyntax = true
@@ -25,18 +13,14 @@ hasCJKLanguage = true
   [markup.goldmark.renderer]
     unsafe = true
 
-# [social]
-#   github = "https://github.com/anegg0"
-#   twitter = "https://twitter.com/anegg0"
-#   stackoverflow = "https://stackoverflow.com/users/4518882/anegg0"
+[social]
+  github = "https://github.com/anegg0"
 
 [params]
   author = "anegg0"
   bio = "Technical Writer/Software Engineer"
   description = "My Blog"
   # enableRSS = true
-  # enableComments = true
-  # enableGoogleAnalytics = true
   showToc = true
   showPowerBy = true
   math = false
