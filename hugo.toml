@@ -21,6 +21,10 @@ paginate = 10
     style = "emacs"
   [markup.goldmark.renderer]
     unsafe = true
+  [markup.goldmark.parser]
+    attribute = true
+    autoHeadingID = true
+    table = true
 
 [social]
   github = "https://github.com/anegg0"

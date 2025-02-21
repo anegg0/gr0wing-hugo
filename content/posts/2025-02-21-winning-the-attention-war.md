@@ -10,7 +10,7 @@ tags = ["logic", "critical thinking", "reasoning"]
 +++
 
 | Fallacy Name | Alternative Name(s) | Definition | Examples |
-|-------------+--------------------+------------+----------|
+|--------------|-------------------|------------|-----------|
 | Ad Hominem | Personal Attack, Argument Against the Person | Attacking the person making the argument rather than addressing the argument itself. | "You can't trust Jane's climate change research because she drives an SUV." "Don't listen to Bob's economic policy - he went bankrupt once!" |
 | Appeal to Authority | Argument from Authority, Argumentum ad Verecundiam | Using the opinion of an authority figure or institution in place of actual evidence. | "Doctor Smith says this supplement works, so it must be effective." "MIT researchers endorsed this theory, so it must be correct." |
 | Appeal to Emotion | Argumentum ad Passiones | Manipulating emotions rather than using valid reasoning to persuade. | "Think about the children!" when arguing for internet censorship. "Our soldiers died for this flag, so it's disrespectful to kneel." |
