@@ -2,8 +2,8 @@
 title = "Logical Fallacies"
 author = "Gaël Blanchemain"
 type = "post"
-date = 2025-02-21T15:28:39+00:00
-url = "/logical-fallacies/"
+date = "2025-02-21"
+slug = "logical-fallacies"
 draft = false
 categories = ["Howtos", "Winning the attention war"]
 tags = ["logic", "critical thinking", "reasoning"]
