@@ -5,6 +5,7 @@ type = "post"
 date = "2025-02-21"
 slug = "logical-fallacies"
 draft = false
+description = "A comprehensive guide to common logical fallacies and how to identify them in arguments and debates."
 categories = ["Howtos", "Winning the attention war"]
 tags = ["logic", "critical thinking", "reasoning"]
 +++
