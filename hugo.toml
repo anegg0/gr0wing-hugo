@@ -37,5 +37,5 @@ paginate = 10
   showToc = false
   showPowerBy = true
   math = false
-  hiddenPostSummaryInHomePage = true
+  hiddenPostSummaryInHomePage = false
   summaryLength = 70
