@@ -6,6 +6,15 @@ ignoreLogs = ["warning-goldmark-raw-html"]
 
 hasCJKLanguage = true
 
+# Enable taxonomies
+[taxonomies]
+  category = "categories"
+  tag = "tags"
+  series = "series"
+
+# Configure pagination
+paginate = 10
+
 [markup]
   [markup.highlight]
     guessSyntax = true
