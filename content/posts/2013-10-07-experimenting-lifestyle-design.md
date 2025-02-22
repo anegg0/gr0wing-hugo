@@ -4,7 +4,7 @@ author: Gaël Blanchemain
 type: post
 date: 2013-10-07T06:30:06+00:00
 url: /experimenting-lifestyle-design/
-featured_image: /assets/images/2013/10/wet-floor.jpg
+featured_image: /assets/wet-floor.jpg
 categories:
   - For lack of a better category
 tags:
