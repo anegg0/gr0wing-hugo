@@ -4,7 +4,7 @@ author: Gaël Blanchemain
 type: post
 date: 2012-06-02T15:50:21+00:00
 url: /4-things-you-should-know-if-you-want-to-be-a-buddhist-monk/
-featured_image: /assets/Phurba-me-e1409697651833.jpg
+featured_image: /images/Phurba-me-e1409697651833.jpg
 vsw_pmvw_video_source:
   - YouTube
 dsq_thread_id:
@@ -17,7 +17,7 @@ tags:
   - tibetan buddhist monk
 ---
 
-![Phurbala and Gael in Buddhist robe](/assets/Phurba-me-e1409697651833.jpg)
+![Phurbala and Gael in Buddhist robe](/images/Phurba-me-e1409697651833.jpg)
 
 Ever thought about leaving everything behind and become a Buddhist monk?
 
@@ -91,7 +91,7 @@ At this point, if you&#8217;re still not discouraged, the below is within your r
 
 &nbsp;
 
-![Sky Tibet Lola banner](/assets/Sky-Tibet-Lola-banner.jpg)
+![Sky Tibet Lola banner](/images/Sky-Tibet-Lola-banner.jpg)
 
 As a monk, as a guy that has abandoned worldly concerns, **you&#8217;ll have peaceful moments**, some will stretch endlessly.
 
