@@ -1,20 +1,9 @@
 ---
 title: "5 things to do if you want to become a Buddhist monk"
 author: "Gaël Blanchemain"
-type: post
 date: 2014-09-08T00:51:09+00:00
-url: /5-things-you-should-do-if-you-want-to-become-a-buddhist-monk/
-dsq_thread_id:
-  - 2997436288
-categories:
-  - Buddhism
-tags:
-  - buddhism
-  - Buddhist monk
-  - Buddhist Monks
-  - meditation
-  - Tibetan
-
+categories: ["Buddhism"]
+tags: ["buddhism", "Buddhist monk", "Buddhist Monks", "meditation", "Tibetan"]
 ---
 <img class="alignleft size-medium wp-image-8534" src="http://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk-300x225.jpg" alt="5 things you should do if you want to become a Buddhist monk" width="300" height="225" srcset="https://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk-300x225.jpg 300w, https://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk-150x112.jpg 150w, https://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk.jpg 1024w" sizes="(max-width: 300px) 100vw, 300px" />A couple of years have passed since I wrote &#8220;4 things you should know if you want to be a Buddhist monk&#8221;. I was not aware this post would be read by 33000 people, many of whom subsequently emailed me about their project to embrace the simple and tough ascetic life.
 
