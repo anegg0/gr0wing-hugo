@@ -13,9 +13,9 @@ tags:
   - society
 
 ---
-<img class=" size-medium wp-image-8766 alignleft" src="http://www.gr0wing.com/wp-content/uploads/2015/08/school-class-300x241.jpg" alt=" " width="300" height="241" srcset="https://www.gr0wing.com/wp-content/uploads/2015/08/school-class-300x241.jpg 300w, https://www.gr0wing.com/wp-content/uploads/2015/08/school-class-1024x824.jpg 1024w, https://www.gr0wing.com/wp-content/uploads/2015/08/school-class-150x121.jpg 150w, https://www.gr0wing.com/wp-content/uploads/2015/08/school-class.jpg 1280w" sizes="(max-width: 300px) 100vw, 300px" />Ever spent more than 6 months abroad?</br>
+<img class=" size-medium wp-image-8766 alignleft" src="http://www.gr0wing.com/wp-content/uploads/2015/08/school-class-300x241.jpg" alt=" " width="300" height="241" srcset="https://www.gr0wing.com/wp-content/uploads/2015/08/school-class-300x241.jpg 300w, https://www.gr0wing.com/wp-content/uploads/2015/08/school-class-1024x824.jpg 1024w, https://www.gr0wing.com/wp-content/uploads/2015/08/school-class-150x121.jpg 150w, https://www.gr0wing.com/wp-content/uploads/2015/08/school-class.jpg 1280w" sizes="(max-width: 300px) 100vw, 300px" />
 
-If so, you’ve probably noticed that wherever you go, people have a particular mindset in common, distinctive quirks, strange habits…And then you go  back home only to realize that your own people are just as weird&#8230;only in a different way.</br>
+If you've ever spent more than 6 months abroad, you’ve probably noticed that wherever you go, people have a particular mindset in common, distinctive quirks, strange habits…And then you go  back home only to realize that your own people are just as weird&#8230;only in a different way.</br>
 
 My case study focuses on France and the US, because each of the round trip I took between these two countries made me wonder why they have such a different outlook on life.</br>
 
