@@ -17,7 +17,7 @@ tags:
   - tibetan buddhist monk
 ---
 
-![Phurbala and Gael in Buddhist robe](assets/2012/06/Phurba-me-e1409697651833.jpg)
+![Phurbala and Gael in Buddhist robe](/images/2012/06/Phurba-me-e1409697651833.jpg)
 
 Ever thought about leaving everything behind and become a Buddhist monk?
 
