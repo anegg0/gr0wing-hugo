@@ -31,7 +31,7 @@ paginate = 10
 
 [params]
   author = "anegg0"
-  # bio = "Technical Writer/Software Engineer"
+  bio = "A broken blog, by Gael Blanchemain"
   description = "My Blog"
   # enableRSS = true
   showToc = false
