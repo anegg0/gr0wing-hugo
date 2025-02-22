@@ -1,6 +1,6 @@
 baseURL = "https://gr0wing.com/"
 languageCode = "en-us"
-title = "Think, Improve, Change the world in the process."
+title = "Gaël Blanchemain"
 theme = "mini"
 ignoreLogs = ["warning-goldmark-raw-html"]
 
