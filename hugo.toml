@@ -1,6 +1,6 @@
 baseURL = "https://gr0wing.com/"
 languageCode = "en-us"
-title = "Think, Improve, Change the world in the process."
+title = "gr0wing, or at least trying to."
 theme = "mini"
 ignoreLogs = ["warning-goldmark-raw-html"]
 
@@ -31,11 +31,11 @@ paginate = 10
 
 [params]
   author = "anegg0"
-  bio = "Technical Writer/Software Engineer"
+  # bio = "Technical Writer/Software Engineer"
   description = "My Blog"
   # enableRSS = true
   showToc = false
-  showPowerBy = true
+  showPowerBy = false
   math = false
   hiddenPostSummaryInHomePage = true
   summaryLength = 70
