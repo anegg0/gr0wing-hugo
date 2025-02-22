@@ -1,9 +1,9 @@
 ---
-title: 5 things to do if you want to become a Buddhist monk
-author: Gaël Blanchemain
+title: "5 things to do if you want to become a Buddhist monk"
+author: "Gaël Blanchemain"
 type: post
 date: 2014-09-08T00:51:09+00:00
-url: /5-things-want-become-buddhist-monk/
+url: /5-things-you-should-do-if-you-want-to-become-a-buddhist-monk/
 dsq_thread_id:
   - 2997436288
 categories:
