@@ -91,7 +91,7 @@ At this point, if you&#8217;re still not discouraged, the below is within your r
 
 &nbsp;
 
-[<img class="aligncenter size-full wp-image-2128" title="Sky-Tibet-Lola-banner" src="http://www.gr0wing.com/wp-content/uploads/2012/06/Sky-Tibet-Lola-banner.jpg" alt="" width="670" height="139" srcset="https://www.gr0wing.com/wp-content/uploads/2012/06/Sky-Tibet-Lola-banner.jpg 670w, https://www.gr0wing.com/wp-content/uploads/2012/06/Sky-Tibet-Lola-banner-300x62.jpg 300w, https://www.gr0wing.com/wp-content/uploads/2012/06/Sky-Tibet-Lola-banner-588x121.jpg 588w" sizes="(max-width: 670px) 100vw, 670px" />][2]
+![Sky Tibet Lola banner](/assets/images/2012/06/Sky-Tibet-Lola-banner.jpg)
 
 As a monk, as a guy that has abandoned worldly concerns, **you&#8217;ll have peaceful moments**, some will stretch endlessly.
 
