@@ -2,6 +2,7 @@
 title: "5 things to do if you want to become a Buddhist monk"
 author: "Gaël Blanchemain"
 date: 2014-09-08T00:51:09+00:00
+draft: false
 categories: ["Buddhism"]
 tags: ["buddhism", "Buddhist monk", "Buddhist Monks", "meditation", "Tibetan"]
 ---
