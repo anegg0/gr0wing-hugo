@@ -112,15 +112,15 @@ That state of relaxed awareness is your best option whatever situation you&#8217
 
 ### How to increase it?
 
-Forget competitivity (see &#8220;beyond competition&#8221;
+Forget competitivity (see "beyond competition"
 
 #### Meditate
 
-[<img class="alignleft size-medium wp-image-2740" title="Shunriu-Suzuki-meditation" alt="" src="http://www.gr0wing.com/wp-content/uploads/2012/06/Shunriu-Suzuki-meditation-252x300.jpg" width="252" height="300" srcset="https://www.gr0wing.com/wp-content/uploads/2012/06/Shunriu-Suzuki-meditation-252x300.jpg 252w, https://www.gr0wing.com/wp-content/uploads/2012/06/Shunriu-Suzuki-meditation-588x698.jpg 588w, https://www.gr0wing.com/wp-content/uploads/2012/06/Shunriu-Suzuki-meditation.jpg 862w" sizes="(max-width: 252px) 100vw, 252px" />][1]&#8220;In meditation we are not looking for anything. We are just looking.&#8221;
+[<img class="alignleft size-medium wp-image-2740" title="Shunriu-Suzuki-meditation" alt="" src="http://www.gr0wing.com/wp-content/uploads/2012/06/Shunriu-Suzuki-meditation-252x300.jpg" width="252" height="300" srcset="https://www.gr0wing.com/wp-content/uploads/2012/06/Shunriu-Suzuki-meditation-252x300.jpg 252w, https://www.gr0wing.com/wp-content/uploads/2012/06/Shunriu-Suzuki-meditation-588x698.jpg 588w, https://www.gr0wing.com/wp-content/uploads/2012/06/Shunriu-Suzuki-meditation.jpg 862w" sizes="(max-width: 252px) 100vw, 252px" />][1]"In meditation we are not looking for anything. We are just looking."
 
 #### Develop contentment
 
-you can learn more about it in &#8220;<a title="The discreet power of contentment" href="http://www.gr0wing.com/the-discreet-power-of-contentment/" target="_blank">the discreet power of contentment</a>&#8221;
+you can learn more about it in "<a title="The discreet power of contentment" href="http://www.gr0wing.com/the-discreet-power-of-contentment/" target="_blank">the discreet power of contentment</a>"
 
 #### Be curious of others
 

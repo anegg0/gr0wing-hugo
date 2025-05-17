@@ -66,7 +66,7 @@ I&#8217;ll let you know when my own experience can be used as an example, it&#82
 
 Well, if you try to leave something behind, chances are they&#8217;ll follow you, unless you <a href="http://zenhabits.net" target="_blank">change your habits</a> and it doesn&#8217;t take to be a monk to do that!
 
-My most successful post <a title="4 things you should know if you want to be a Buddhist monk" href="http://www.gr0wing.com/4-things-you-should-know-if-you-want-to-be-a-buddhist-monk/" target="_blank">&#8220;4 things you should know if you want to become a Buddhist Monk&#8221;</a> has many visitors who see monastic life as a chance to dump their social and professional life, which are sometimes too challenging.
+My most successful post <a title="4 things you should know if you want to be a Buddhist monk" href="http://www.gr0wing.com/4-things-you-should-know-if-you-want-to-be-a-buddhist-monk/" target="_blank">"4 things you should know if you want to become a Buddhist Monk"</a> has many visitors who see monastic life as a chance to dump their social and professional life, which are sometimes too challenging.
 
 In most cases, I think they&#8217;re contemplating asceticism for the wrong reasons (and I did that mistake too). To get a good start with Buddhism and create the right conditions to learn from it, I wrote a <a title="Buddhism for absolute beginners: a tutorial" href="http://www.gr0wing.com/buddhism-absolute-beginners-tutorial/" target="_blank">post for absolute beginners</a>. I now strongly recommend to progress one step at a time by studying and learning first, then maybe, eventually, consider the monastic path.
 

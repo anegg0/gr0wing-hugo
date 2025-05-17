@@ -19,9 +19,9 @@ tags:
 > During the civil wars in feudal Japan, an invading army would quickly sweep into a town and take control. In one particular village, everyone fled just before the army arrived &#8211; everyone except the Zen master.
 > 
 > Curious about this old fellow, the general went to the temple to see for himself what kind of man this master was. When he wasn&#8217;t treated with the deference and submissiveness to which he was accustomed, the general burst into anger.  
-> &#8220;You fool,&#8221; he shouted as he reached for his sword, &#8220;don&#8217;t you realize you are standing before a man who could run you through without blinking an eye!&#8221;
+> "You fool," he shouted as he reached for his sword, "don&#8217;t you realize you are standing before a man who could run you through without blinking an eye!"
 > 
-> But despite the threat, the master seemed unmoved. &#8220;And do you realize,&#8221; the master replied calmly, &#8220;that you are standing before a man who can be run through without blinking an eye?&#8221;
+> But despite the threat, the master seemed unmoved. "And do you realize," the master replied calmly, "that you are standing before a man who can be run through without blinking an eye?"
 
 Famous Zen teachers are remembered for being unshakable, they&#8217;d keep their cool even with a sword pointed at their throat, but they weren&#8217;t born like that, fearlessness can be learned through the rigorous path of meditation.
 
@@ -31,7 +31,7 @@ The point of this article is not to venerate the noble traits of deceased asceti
 
 When I ask myself what&#8217;s courage, my mind immediately responds with a  a 3D picture of Bruce Willis jumping out of an exploding helicopter. I guess Hollywood&#8217;s propaganda won the fight to conquer my lizard brain.
 
-And if I look up &#8220;courage&#8221; in my dictionary I get: <img class="aligncenter size-full wp-image-7179" alt="def-courage" src="http://www.gr0wing.com/wp-content/uploads/2014/01/def-courage.jpg" width="344" height="122" srcset="https://www.gr0wing.com/wp-content/uploads/2014/01/def-courage.jpg 344w, https://www.gr0wing.com/wp-content/uploads/2014/01/def-courage-300x106.jpg 300w" sizes="(max-width: 344px) 100vw, 344px" />
+And if I look up "courage" in my dictionary I get: <img class="aligncenter size-full wp-image-7179" alt="def-courage" src="http://www.gr0wing.com/wp-content/uploads/2014/01/def-courage.jpg" width="344" height="122" srcset="https://www.gr0wing.com/wp-content/uploads/2014/01/def-courage.jpg 344w, https://www.gr0wing.com/wp-content/uploads/2014/01/def-courage-300x106.jpg 300w" sizes="(max-width: 344px) 100vw, 344px" />
 
 Fair enough, it&#8217;s clearly more objective but maybe a more intimate definition is required, one that tells you how it  _feels_ to be courageous.
 
@@ -44,7 +44,7 @@ If I sum up what I&#8217;ve experienced and studied: courage is just a completel
 
 Chogyam Trungpa Rinpoche was an extraordinary Tibetan Buddhist master, he received a intensive meditation training from a very young age, but part of his education was also about dealing with fear: for instance, his master advised him to visit  places he was scared of, like graveyards.
 
-He once told a story about traveling with his attendants to a monastery he’d never seen before. As they neared the gates, he saw a large guard dog with huge teeth and red eyes. It was growling ferociously and struggling to get free from the chain that held it. The dog seemed desperate to attack them. As Rinpoche got closer, he could see its bluish tongue and spittle spraying from its mouth. They walked past the dog, keeping their distance, and entered the gate. Suddenly the chain broke and the dog rushed at them. The attendants screamed and froze in terror. Rinpoche turned and ran as fast as he could— straight at the dog. The dog was so surprised that he put his tail between his legs and ran away. (excerpt from <a href="http://www.amazon.com/gp/product/1570629692/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=1570629692&linkCode=as2&tag=grotherooofha-20" target="_blank">&#8220;When things fall apart&#8221; &#8211; Pema Chödron</a>)
+He once told a story about traveling with his attendants to a monastery he’d never seen before. As they neared the gates, he saw a large guard dog with huge teeth and red eyes. It was growling ferociously and struggling to get free from the chain that held it. The dog seemed desperate to attack them. As Rinpoche got closer, he could see its bluish tongue and spittle spraying from its mouth. They walked past the dog, keeping their distance, and entered the gate. Suddenly the chain broke and the dog rushed at them. The attendants screamed and froze in terror. Rinpoche turned and ran as fast as he could— straight at the dog. The dog was so surprised that he put his tail between his legs and ran away. (excerpt from <a href="http://www.amazon.com/gp/product/1570629692/ref=as_li_ss_tl?ie=UTF8&camp=1789&creative=390957&creativeASIN=1570629692&linkCode=as2&tag=grotherooofha-20" target="_blank">"When things fall apart" &#8211; Pema Chödron</a>)
 
 If you learn to face situations that scare you and combine it with the art of letting go (meditation), fear will gradually lose ground.
 

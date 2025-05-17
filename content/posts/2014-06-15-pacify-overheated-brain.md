@@ -28,15 +28,15 @@ tags:
   - overheated
 
 ---
-The human brain is a problem solving machine. Or at least that&#8217;s how our species has been using it so far.
+The human brain is a problem solving machine. Or at least that's how our species has been using it so far.
 
-It&#8217;s constantly looking for dangers around us, and it dedicates its impressive computing power to help us stay alive.
+It's constantly looking for dangers around us, and it dedicates its impressive computing power to help us stay alive.
 
-There&#8217;s no doubt this survival mode was once necessary when we lived in caves, with saber-toothed tigers as immediate neighbors, but it makes much less sense in the city, even if threats still manifest in the form of a gas bill or a meeting with an ex.
+There's no doubt this survival mode was once necessary when we lived in caves, with saber-toothed tigers as immediate neighbors, but it makes much less sense in the city, even if threats still manifest in the form of a gas bill or a meeting with an ex.
 
-In fact, our faithful but archaic brain poses a problem: it&#8217;s operating system hasn&#8217;t had time to adapt to modern reality. Like a cat in a mall, it fails to decode what constitutes a hazard and what doesn&#8217;t. That&#8217;s just too much information delivered too quickly.
+In fact, our faithful but archaic brain poses a problem: it's operating system hasn't had time to adapt to modern reality. Like a cat in a mall, it fails to decode what constitutes a hazard and what doesn't. That's just too much information delivered too quickly.
 
-And to make matters worse: it won&#8217;t stop. The human GPS is a fail safe unit: it stays on all the time.
+And to make matters worse: it won't stop. The human GPS is a fail safe unit: it stays on all the time.
 
 The result of this adaptive issue is a constant inner conflict: a series of archaic responses from our lizard brain that trigger panic mode for any reason.
 
@@ -44,7 +44,7 @@ The result of this adaptive issue is a constant inner conflict: a series of arch
   * Your presentation scheduled in a month is now due next week > Panic mode
   * TV announces another mass shooting in a neighboring state > Panic mode
 
-It&#8217;s tough, because that bug in our design generates most of the first world&#8217;s problems: struggling with anxiety, depression or experiencing a permanent sense of frustration.
+It's tough, because that bug in our design generates most of the first world's problems: struggling with anxiety, depression or experiencing a permanent sense of frustration.
 
 Of course, there are solutions, we all tend to use them, but they only offer a temporary relief, and they often make things worse in the long run:
 
@@ -67,14 +67,14 @@ The body-scan is the most famous meditation to help you reconnect your body and 
 
 ## Setting routines
 
-There are many reasons why I&#8217;d recommend daily routines, one of them is that it reduces the number of decisions you have to make, and therefore helps the mind take a rest.
+There are many reasons why I'd recommend daily routines, one of them is that it reduces the number of decisions you have to make, and therefore helps the mind take a rest.
 
 ## Working out
 
-If all the above hasn&#8217;t helped, exercise will. When mind is under stress, the body follows (high body temperature, racing heart). If you work out, you give body and mind a huge opportunity to release stress, said differently, you offer that lizard brain the physical response it asked for: fight or flight.  
-Those who&#8217;ve followed me for a while may have noticed that mind management is most of what I talk about. My obsession is only getting worse as months pass. And let&#8217;s be clear I don&#8217;t consider myself an expert in this field, I&#8217;m just a dude who&#8217;s slowly realizing the power of mind over every aspect of our lives.
+If all the above hasn't helped, exercise will. When mind is under stress, the body follows (high body temperature, racing heart). If you work out, you give body and mind a huge opportunity to release stress, said differently, you offer that lizard brain the physical response it asked for: fight or flight.  
+Those who've followed me for a while may have noticed that mind management is most of what I talk about. My obsession is only getting worse as months pass. And let's be clear I don't consider myself an expert in this field, I'm just a dude who's slowly realizing the power of mind over every aspect of our lives.
 
-Maybe I should&#8217;ve started earlier, but I feel lucky enough to open my eyes to this reality anyway. BTW, I just discovered this speech, I think it brilliantly expands on the topic of what a human mind can do:  
+Maybe I should've started earlier, but I feel lucky enough to open my eyes to this reality anyway. BTW, I just discovered this speech, I think it brilliantly expands on the topic of what a human mind can do:  
 <a href="http://web.ics.purdue.edu/~drkelly/DFWKenyonAddress2005.pdf" target="_blank">David Foster Wallace Kenyon Commencement Address.</a>
 
 As always, your thoughts are welcome below.

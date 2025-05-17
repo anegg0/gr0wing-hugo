@@ -15,7 +15,7 @@ tags:
   - self-reliance
 
 ---
-><img class="alignleft size-full wp-image-7796" src="http://www.gr0wing.com/wp-content/uploads/2014/05/indianbus4.jpg" alt="indianbus4" width="357" height="380" srcset="https://www.gr0wing.com/wp-content/uploads/2014/05/indianbus4.jpg 357w, https://www.gr0wing.com/wp-content/uploads/2014/05/indianbus4-281x300.jpg 281w" sizes="(max-width: 357px) 100vw, 357px" /> &#8220;If OK, then OK. If not OK, then OK anyway!&#8221; &#8211; An Indian man I met in the bus.
+><img class="alignleft size-full wp-image-7796" src="http://www.gr0wing.com/wp-content/uploads/2014/05/indianbus4.jpg" alt="indianbus4" width="357" height="380" srcset="https://www.gr0wing.com/wp-content/uploads/2014/05/indianbus4.jpg 357w, https://www.gr0wing.com/wp-content/uploads/2014/05/indianbus4-281x300.jpg 281w" sizes="(max-width: 357px) 100vw, 357px" /> "If OK, then OK. If not OK, then OK anyway!" &#8211; An Indian man I met in the bus.
 
 That was a while ago. I had been working full time with a respected Buddhist teacher for two years and didn&#8217;t notice any improvement in my life, so I decided to tell him that he was probably not the right guide for me.
 
@@ -39,9 +39,9 @@ That we&#8217;re not self-sustaining beings, we&#8217;re vulnerable, we need oth
 
 Our fate is largely influenced by circumstances, and these circumstances are out of our control. The idea that we&#8217;re entirely responsible for our destiny is not true in the course of a lifetime. We depend on a complex network of factors, and the amount of freewill we have is limited.
 
-We can improve our lot, to a certain extent, but the &#8220;unlimited potential&#8221; promised by personal development literature is not necessarily true on the material level. People born blind won&#8217;t be able to drive a F-16 fighter jet and those living in extremely poor countries have little to no chance to join the 1% even if they read &#8220;The Secret&#8221;.
+We can improve our lot, to a certain extent, but the "unlimited potential" promised by personal development literature is not necessarily true on the material level. People born blind won&#8217;t be able to drive a F-16 fighter jet and those living in extremely poor countries have little to no chance to join the 1% even if they read "The Secret".
 
-My point is not to be harsh, here, but to object the self-help claim that we can do &#8220;whatever we want if we want it bad enough&#8221; and that if we fail, we can only incriminate our laziness. There&#8217;s a need for kindness and acceptance toward ourselves, it&#8217;s not always our fault when we fail.
+My point is not to be harsh, here, but to object the self-help claim that we can do "whatever we want if we want it bad enough" and that if we fail, we can only incriminate our laziness. There&#8217;s a need for kindness and acceptance toward ourselves, it&#8217;s not always our fault when we fail.
 
 We can&#8217;t entirely design our life, and while we need to imagine a better future, blaming our misfortune on ourselves only is unfair treatment. Outer freedom is limited, our time on earth is limited, and the same goes for every material resources we need as human beings.
 
@@ -60,11 +60,11 @@ Roughly speaking, there are two types of methods available to us, both allowing 
 
 #### Changing the way we think (or trying to)
 
-Bending our beliefs to our advantage is what self-help is about, to a great extent. Some schools advocate for gratitude as a daily practice (your FB timeline is probably full of those statements), other offer methods to &#8220;reprogram&#8221; your mind via positive thinking.
+Bending our beliefs to our advantage is what self-help is about, to a great extent. Some schools advocate for gratitude as a daily practice (your FB timeline is probably full of those statements), other offer methods to "reprogram" your mind via positive thinking.
 
 A lot of these mental techniques seem to bring results to people coming from all walks of life, but I can&#8217;t really advocate for them as they didn&#8217;t help me that much. I discovered that I&#8217;m not alone in that case.
 
-Actually an increasing number of people report that positive thinking makes it harder for them to face tough times: visualizing an ideal environment full of wonders and love doesn&#8217;t prepare them well for the inevitable waves of personal disaster. The worst part is that if they don&#8217;t succeed at feeling better, they blame themselves for not &#8220;programing their mind&#8221; or sending the wrong message to the universe. Something is probably missing here&#8230;
+Actually an increasing number of people report that positive thinking makes it harder for them to face tough times: visualizing an ideal environment full of wonders and love doesn&#8217;t prepare them well for the inevitable waves of personal disaster. The worst part is that if they don&#8217;t succeed at feeling better, they blame themselves for not "programing their mind" or sending the wrong message to the universe. Something is probably missing here&#8230;
 
 There&#8217;s a simpler approach than trying to scream yourself into satisfaction.**  
 ** 

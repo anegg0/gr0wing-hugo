@@ -15,7 +15,7 @@ tags:
   - spirituality
 
 ---
-&#8220;It is no fun, being a victim&#8221; &#8211; Louise Hay
+"It is no fun, being a victim" &#8211; Louise Hay
 
 Sometimes I call myself names: moron or loser, depending. That happens occasionally when I do something that I consider wrong. 
 
@@ -37,13 +37,13 @@ The most common form of self-abuse has to do with the way we think, though.
 
 We all tell stories to ourselves. Theses stories define the reality we live in, some are general statements such as:
 
-_&#8220;People are not reliable&#8221;_  
+_"People are not reliable"_  
 or  
-_&#8220;Everyone deserves an access to education&#8221;_
+_"Everyone deserves an access to education"_
 
 Some are certainties regarding ourself:  
-_&#8220;I&#8217;m such a klutz!&#8221;_  
-_&#8220;I can&#8217;t talk in public&#8221;_
+_"I&#8217;m such a klutz!"_  
+_"I can&#8217;t talk in public"_
 
 These thoughts might derive from our family background and many other factors but in the end, only one question should be asked to know if we should keep holding on to them:
 
@@ -67,9 +67,9 @@ We often get disappointed when we directly see what thoughts occur in our mind, 
 
 ## 3: Dismantle
 
-&#8220;Think for yourself, question authority&#8221; &#8211; Timothy Leary
+"Think for yourself, question authority" &#8211; Timothy Leary
 
-Last step in this process is to question the thoughts you consider negative. Let&#8217;s take an example: **&#8220;I&#8217;m not smart&#8221;**.
+Last step in this process is to question the thoughts you consider negative. Let&#8217;s take an example: **"I&#8217;m not smart"**.
 
 We tend to validate that kind of ultimate judgements when they come from ourself, but would you let someone else throw that kind of crap at your face?
 

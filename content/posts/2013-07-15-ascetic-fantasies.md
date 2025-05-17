@@ -27,8 +27,8 @@ Long ago, there was a Tibetan Yogi who had spent so many years contemplating the
 He could no longer see but blurry shadows, yet he would meditate all day, in the silence of his cave up in the mountains.  
 Being an ascetic meditator, he had renounced worldly pleasures and lived isolated from the rest of the planet. He only indulged in playing an imaginary flute, sometimes. There were not notes to hear and he was on his own, facing the sky.
 
-One day  the Yogi&#8217;s master came to his  cave to give him meditation instructions, as the master crossed the threshold the Yogi asked: &#8220;Who&#8217;s there?&#8221;  
-&#8220;I&#8217;m your spiritual guide&#8221;, the master replied.  
+One day  the Yogi&#8217;s master came to his  cave to give him meditation instructions, as the master crossed the threshold the Yogi asked: "Who&#8217;s there?"  
+"I&#8217;m your spiritual guide", the master replied.  
 But since the blind Yogi couldn&#8217;t see his master&#8217;s face, he thought he was a Demon and kicked him out.
 
 The End.
@@ -47,7 +47,7 @@ If you have ever considered giving your laptop to charity and go live in a Buddh
 
 While most of us enjoy spending the night with a partner, hearing the neighbor engage in the same type of activities is a lot less rewarding.
 
-The neighbor is a pain, and more generally the **others** are a pain, and it to apply in most cases: if it wasn&#8217;t for people you wouldn&#8217;t have to queue up for a sandwich, or get a job, go to war or even say &#8220;Hi!&#8221; in the elevator to a bunch of unfriendly faces.  
+The neighbor is a pain, and more generally the **others** are a pain, and it to apply in most cases: if it wasn&#8217;t for people you wouldn&#8217;t have to queue up for a sandwich, or get a job, go to war or even say "Hi!" in the elevator to a bunch of unfriendly faces.  
 You&#8217;d just be enjoying time on your own, right?
 
 That&#8217;s one of the reasons why many people consider renouncing the world: to stop dealing with people.
@@ -86,12 +86,12 @@ Rage quitting is the first personal reaction I had to society. I was 26, I had d
 
 I came back to a more conventional life 10 years later, only to discover that there are many young people <a href="http://www.gr0wing.com/4-things-you-should-know-if-you-want-to-be-a-buddhist-monk/" target="_blank">drawn to this article</a> because they&#8217;re about to do just the same thing I did a while ago.
 
-The underlying mindset that pushes someone to become a monk or go to a solitary retreat is often an angry message sent to society: &#8220;so far you didn&#8217;t manage to make me happy, so I&#8217;m outta here!&#8221;.  
+The underlying mindset that pushes someone to become a monk or go to a solitary retreat is often an angry message sent to society: "so far you didn&#8217;t manage to make me happy, so I&#8217;m outta here!".  
 Yep, shaving your head and going for a saffron robe can be a way to tell the system to go fuck itself and I can totally relate to that.
 
 That&#8217;s also what I sense in many of the messages I receive, but I think that it&#8217;s not always necessary to go through that rejection step.
 
-I&#8217;m not here to ruin everyone&#8217;s inspiration toward asceticism, but I believe in the &#8220;Garbage In/Garbage Out&#8221; law: your initial motivation will determine the nature of your outcome. Renouncing because of an adolescent crisis generally gets you nowhere.
+I&#8217;m not here to ruin everyone&#8217;s inspiration toward asceticism, but I believe in the "Garbage In/Garbage Out" law: your initial motivation will determine the nature of your outcome. Renouncing because of an adolescent crisis generally gets you nowhere.
 
 In fact, you&#8217;re better off studying first, then gradually move on to more radical forms of practice.
 

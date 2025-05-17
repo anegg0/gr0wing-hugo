@@ -35,6 +35,6 @@ We could draw our ideas as they pop instead of letting them drown in an ocean of
 
 We could meditate more, and give our mind ample time to settle and open up.
 
-That gentle attitude is easy to develop, easy to maintain, and very rewarding because when you meet your brain&#8217;s needs, it happily works day and night for you. I’m actually sure of it because I operated that way for months.
+That gentle attitude is easy to develop, easy to maintain, and very rewarding because when you meet your brain's needs, it happily works day and night for you. I’m actually sure of it because I operated that way for months.
 
 All it takes is to organize our life around our biology, not the other way around. You might want to give it a try, just to see if it works.

@@ -36,7 +36,7 @@ Nearly all the meditators I know have that problem, I guess we&#8217;re all the 
 
 **How to stick with meditation in hard times and make it a powerful ally, not just a drag?**  
 To answer this question, I collected practical advice  from Buddhist masters and advanced practitioners during 15 years, I summarized them below.  
-This post will show you how to smash the &#8220;meditator&#8217;s procrastination&#8221; no matter what hardships you&#8217;re going through.
+This post will show you how to smash the "meditator&#8217;s procrastination" no matter what hardships you&#8217;re going through.
 
 ### FIRST THOUGHT, BEST THOUGHT
 

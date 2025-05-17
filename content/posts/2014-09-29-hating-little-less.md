@@ -14,7 +14,7 @@ tags:
   - skin bleach
 
 ---
-<img class="alignleft size-medium wp-image-8569" src="http://www.gr0wing.com/wp-content/uploads/2014/09/Hating-yourself-a-little-less-e1411958757146-210x300.jpg" alt="Hating yourself a little less" width="210" height="300" srcset="https://www.gr0wing.com/wp-content/uploads/2014/09/Hating-yourself-a-little-less-e1411958757146-210x300.jpg 210w, https://www.gr0wing.com/wp-content/uploads/2014/09/Hating-yourself-a-little-less-e1411958757146-105x150.jpg 105w, https://www.gr0wing.com/wp-content/uploads/2014/09/Hating-yourself-a-little-less-e1411958757146.jpg 232w" sizes="(max-width: 210px) 100vw, 210px" />If you&#8217;re black, you&#8217;re the usual suspect, they&#8217;ll call you nigger or just &#8220;person of color&#8221; and you&#8217;ll get the evil eye in the bus and the restaurant.
+<img class="alignleft size-medium wp-image-8569" src="http://www.gr0wing.com/wp-content/uploads/2014/09/Hating-yourself-a-little-less-e1411958757146-210x300.jpg" alt="Hating yourself a little less" width="210" height="300" srcset="https://www.gr0wing.com/wp-content/uploads/2014/09/Hating-yourself-a-little-less-e1411958757146-210x300.jpg 210w, https://www.gr0wing.com/wp-content/uploads/2014/09/Hating-yourself-a-little-less-e1411958757146-105x150.jpg 105w, https://www.gr0wing.com/wp-content/uploads/2014/09/Hating-yourself-a-little-less-e1411958757146.jpg 232w" sizes="(max-width: 210px) 100vw, 210px" />If you&#8217;re black, you&#8217;re the usual suspect, they&#8217;ll call you nigger or just "person of color" and you&#8217;ll get the evil eye in the bus and the restaurant.
 
 It&#8217;s easy to be rejected, all it takes is to be dark skinned.
 
@@ -31,6 +31,6 @@ Everybody has already tried: black people smearing bleach cream on their faces t
 
 And while the whole world&#8217;s busy trying to be someone else, time&#8217;s running out, stealing our only chance to impersonate the only credible character: us.
 
-I could have called this post &#8220;How to be yourself&#8221; BTW, but it would have been both cruel and ironic, since the only person that can do that is you.
+I could have called this post "How to be yourself" BTW, but it would have been both cruel and ironic, since the only person that can do that is you.
 
 Until you can fully stomach others&#8217; arbitrary rejection, until you accept that often you don&#8217;t even like yourself, personal development is a fraud, religion is an exit strategy and life a S&M reality show.

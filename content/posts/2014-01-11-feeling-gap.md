@@ -15,7 +15,7 @@ tags:
   - technology
 
 ---
-> &#8220;You need to build an ability to just be yourself and not be doing something&#8221; &#8211; Louis CK
+> "You need to build an ability to just be yourself and not be doing something" &#8211; Louis CK
 
 Between the time when you send a text asking a girl on a date and the moment when she responds, there&#8217;s a long stretch of apprehension.  
 Same thing if you send a resume online, your head loaded with questions and anxiety. Or lining up at a starbucks, in hope a grande caramel macchiato will compensate for the nervosity and emptiness you feel inside.
@@ -30,6 +30,6 @@ Imagine a real power shutdown, a general one? We would be left on our own, our m
 
 There is a way out of this vulnerable state, though, although not very comfortable in the beginning. It&#8217;s the path of sitting there, doing nothing, and watching the constant show of fears and hopes our mind runs 24/7 in our head. Just being curious about it, noticing the patterns, and gradually liberating ourselves from the disempowering processes we unconsciously set up. Practicing mindfulness works, and after a while we&#8217;ll realize that the next urge to click our uneasiness away will be less intense.
 
-There&#8217;s nothing that we need, aside from what we already have. That serenity, that feeling of being complete, we have it embedded in our system, but  it can only be enjoyed in the moment. Not tomorrow, not in 20 minutes, <span style="text-decoration: underline;">now</span>. That &#8220;now&#8221; is within our reach, it&#8217;s our responsibility to make it ours.
+There&#8217;s nothing that we need, aside from what we already have. That serenity, that feeling of being complete, we have it embedded in our system, but  it can only be enjoyed in the moment. Not tomorrow, not in 20 minutes, <span style="text-decoration: underline;">now</span>. That "now" is within our reach, it&#8217;s our responsibility to make it ours.
 
 When the gap is filled, some call that meditation, but really, it&#8217;s just about being a human.

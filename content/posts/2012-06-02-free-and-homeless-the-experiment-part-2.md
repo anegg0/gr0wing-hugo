@@ -78,7 +78,7 @@ Talking about easy prey. I’m a good candidate for the worst, I guess God will 
 
 ### Dying consciously
 
-The meditation course I’m about to attend is called &#8220;[Phowa][3]&#8221; or the Practice of Conscious Dying. It belongs to a 10-century old Buddhist tradition started in India.
+The meditation course I’m about to attend is called "[Phowa][3]" or the Practice of Conscious Dying. It belongs to a 10-century old Buddhist tradition started in India.
 
 During this practice, one learns to **transfer their consciousness at the moment of death** into the state of highest bliss (Dewachen). Sounds exciting and creepy at the same time, but I’m shit scared of death and this practice gives some kind of answer to the big question:
 

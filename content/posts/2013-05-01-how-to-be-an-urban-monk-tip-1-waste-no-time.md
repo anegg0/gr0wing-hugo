@@ -52,7 +52,7 @@ As you probably know, I actually did that when I was 26. I turned my back on the
 It felt good and it was definitely meaningful, but 10 years down the road I went back to the a normal routine, and I have no regrets about it.  
 I still cherish my monastic past, but now I&#8217;m pretty sure I could have gotten the same results in a more conventional way.
 
-In fact, there&#8217;s a lot of &#8220;monastic&#8221; rules you can start applying where you are, without turning in the keys of your apartment, I&#8217;m confident saying this because I spent the last 5 years experimenting with both asceticism in an urban environment and I think it worked out.
+In fact, there&#8217;s a lot of "monastic" rules you can start applying where you are, without turning in the keys of your apartment, I&#8217;m confident saying this because I spent the last 5 years experimenting with both asceticism in an urban environment and I think it worked out.
 
 I started addressing this topic with a post on <a title="Urban Monks" href="http://www.gaelblanchemain.com/urban-monks/" target="_blank">Urban Monks</a>, now I&#8217;d like to share a little more on how to live like one.
 

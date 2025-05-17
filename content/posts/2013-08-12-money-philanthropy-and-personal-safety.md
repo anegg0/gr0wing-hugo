@@ -43,7 +43,7 @@ I started to do some research, to gather information in order to be able to inve
 
 Getting good at anything requires some time. And along the learning curve, I encountered all kinds of trial and errors. Little by little, I gathered enough knowledge to become good at what I&#8217;m doing.
 
-So, I thought &#8221; Why not do that for others? It can be your job! Why not be a financial advisor?&#8221;
+So, I thought " Why not do that for others? It can be your job! Why not be a financial advisor?"
 
 At this time I was back in France. I went back to school, in order to pass all the legal accreditation allowing me to practice this profession in a lawful manner.
 
@@ -61,7 +61,7 @@ The financial markets are what we do with them. If we are motivated by fear and 
 
 Everything depends on our motivation. In order to be clear with it, we have to reflect, to study a bit and to communicate with each other.
 
-The previous era was based on size, the motto was &#8220;Too big to fail&#8221; We might now be witnessing a shift towards &#8220;Too Sustainable to Fail&#8221;
+The previous era was based on size, the motto was "Too big to fail" We might now be witnessing a shift towards "Too Sustainable to Fail"
 
 I don’t know if we have already reached a critical mass, but it seems to me that many people are willing to use alternative ways of investing, using conventional supports.
 
@@ -85,7 +85,7 @@ This decentralization is the basis for Bitcoin&#8217;s security and freedom. Bi
 
 Bitcoin is a community run system, not controlled by anyone.
 
-I&#8217;m interested to follow what is going on with bitcoins, because, it might become to fiat currencies what email is to &#8220;snail mail&#8221;,  Skype to old fashion phones&#8230;
+I&#8217;m interested to follow what is going on with bitcoins, because, it might become to fiat currencies what email is to "snail mail",  Skype to old fashion phones&#8230;
 
 **What are the benefits and potential risks of investing in Bitcoin?**
 
@@ -99,7 +99,7 @@ For example, during the past 6 months, it went from $ 20 to $ 260, then down to 
 
 As I said before, traditional investment is not a bad thing in itself. A bank can&#8217;t really do more than what we let them do.
 
-I know it might seem a bit provocative, but I think we have our share of responsibilities &#8230; One day I was discussing with a Buddhist teacher about a similar type of problem and he asked me &#8220;If you invite a thief in your house and something is stolen, whose fault is it ? &#8221;
+I know it might seem a bit provocative, but I think we have our share of responsibilities &#8230; One day I was discussing with a Buddhist teacher about a similar type of problem and he asked me "If you invite a thief in your house and something is stolen, whose fault is it ? "
 
 Anyway, here are:
 
@@ -111,7 +111,7 @@ Even if it is something as little as putting aside $ 50 every month ! You will s
 
 Do something and do it now ! Don&#8217;t wait, don&#8217;t think it is not worth it to put aside just $ 50, I will do it when I have more to put aside&#8230; If you don&#8217;t do it, when you reach retirement age, you will be one of those who can apply Warren Buffet&#8217;s quote :
 
-&#8220;After all, you only find out who is swimming naked when the tide goes out.&#8221;
+"After all, you only find out who is swimming naked when the tide goes out."
 
 ### 2) Seek the advice of a good financial advisor
 
@@ -121,7 +121,7 @@ Someone who is able to explain clearly why he/she chooses a particular investmen
 
 The responsibility of the advisor is to explain; yours is to understand.
 
-When I was in New York, I went with a friend to see her financial advisor, and at the first question we asked about a particular investment support he used for her, his answer was &#8220;don&#8217;t worry about that.&#8221;
+When I was in New York, I went with a friend to see her financial advisor, and at the first question we asked about a particular investment support he used for her, his answer was "don&#8217;t worry about that."
 
 Well Man, it&#8217;s her money, she wants to know about it !
 
@@ -133,7 +133,7 @@ The moral of this story is that maybe it is a good idea to seek an independent f
 
 It&#8217;s a classic idea, but people usually forget it&#8230;
 
-It is also a good way to weigh the &#8220;Independence&#8221;  of your financial advisor. If he absolutely wants to invest all your money in a particular support, there might be a good reason &#8230; FOR HIM/HER &#8230; to do so. Perhaps a better commission on this particular product ?
+It is also a good way to weigh the "Independence"  of your financial advisor. If he absolutely wants to invest all your money in a particular support, there might be a good reason &#8230; FOR HIM/HER &#8230; to do so. Perhaps a better commission on this particular product ?
 
 Your advisor must propose to you a vast range of supports to safely invest your money, spreading the risk.
 
@@ -141,7 +141,7 @@ Your advisor must propose to you a vast range of supports to safely invest your 
 
 I would suggest that you work at building a safety cushion. This should be your primary objective.
 
-How big should be this cushion be? One month of expenses ? 2 months ? Try to define your comfort zone. &#8220;I feel good with x month of expenses in my safety cushion&#8221;&#8230;
+How big should be this cushion be? One month of expenses ? 2 months ? Try to define your comfort zone. "I feel good with x month of expenses in my safety cushion"&#8230;
 
 Then you will need to apply tip #1 : DO something NOW. How much can you put aside every month ? $ 10 ? $ 50 ? &#8230; Whatever you can do,  DO IT!
 

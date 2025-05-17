@@ -35,7 +35,7 @@ So here I go, after quite some weeks trying to cope with a growing fit of depres
 I decided to drop out and let it go.
 
 I always remember what my friend Guillaume Jégou once told me:  
-&#8220;when I really feel like hell, I surrender and I let myself drown. Then I rest there, at the bottom&#8221;.
+"when I really feel like hell, I surrender and I let myself drown. Then I rest there, at the bottom".
 
 <p style="text-align: center;">
   <img class="size-medium wp-image-3906 aligncenter" title="01" src="http://www.gr0wing.com/wp-content/uploads/2012/11/011-300x168.jpg" alt="" width="300" height="168" srcset="https://www.gr0wing.com/wp-content/uploads/2012/11/011-300x168.jpg 300w, https://www.gr0wing.com/wp-content/uploads/2012/11/011.jpg 480w" sizes="(max-width: 300px) 100vw, 300px" />
@@ -49,7 +49,7 @@ You just drop out, you accept your fate and let the black wave of discomfort inv
 
 ### War is over
 
-&#8220;Fighting depression&#8221; is a misleading expression. I stopped using that martial terminology a while ago because it only leads to more confusion. If you assume that you have to struggle against depression, you believe that you&#8217;re dealing with a serious threat.
+"Fighting depression" is a misleading expression. I stopped using that martial terminology a while ago because it only leads to more confusion. If you assume that you have to struggle against depression, you believe that you&#8217;re dealing with a serious threat.
 
 But there&#8217;s nothing real here, only a temporary feeling, the sooner you lay your weapons on the ground, the faster the recovery.
 

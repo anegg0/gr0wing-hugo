@@ -24,26 +24,26 @@ When life is frowning at you, the usual response is to find an exit strategy, so
   * Smoking a joint
   * Gossiping about famous people that are doing worse than you
   * Scrolling desperately down on your Facebook timeline
-  * Raiding your kids&#8217; <a href="http://www.wikihow.com/Hide-Your-Candy-Stash-from-Other-People" target="_blank">candy stash</a> and eat all their chocolate
+  * Raiding your kids' <a href="http://www.wikihow.com/Hide-Your-Candy-Stash-from-Other-People" target="_blank">candy stash</a> and eat all their chocolate
   * Blaming the cat for being arrogant and selfish and moustachy
 
 <!--more-->
 
-There&#8217;s nothing wrong with compensating daily frustrations with an exit strategy, except it doesn&#8217;t solve anything: reality bites back at you as soon as you&#8217;re done trying to escape it (it&#8217;ll even charge you interest rates).
+There's nothing wrong with compensating daily frustrations with an exit strategy, except it doesn't solve anything: reality bites back at you as soon as you're done trying to escape it (it'll even charge you interest rates).
 
 When the chocolate is gone, your balance is still in the red.
 
-### What&#8217;s the catch, then?
+### What's the catch, then?
 
-There&#8217;s no catch but being fully here, now, and experience frustration in your tense body.
+There's no catch but being fully here, now, and experience frustration in your tense body.
 
 Let frustration pervade through your bones, your heart, your muscles. Have the guts to acknowledge pain, 100%.
 
-I&#8217;ve done that through <a href="http://en.wikipedia.org/wiki/Samatha" target="_blank">Samatha meditation</a>, it did the trick for me (and million others).
+I've done that through <a href="http://en.wikipedia.org/wiki/Samatha" target="_blank">Samatha meditation</a>, it did the trick for me (and million others).
 
 &nbsp;
 
-The shortest path to regain balance is accepting when the boat is rocking furiously. Once you&#8217;ve fully accepted the brutality of your feelings, they pacify themselves, then you can safely move on, for good this time.
+The shortest path to regain balance is accepting when the boat is rocking furiously. Once you've fully accepted the brutality of your feelings, they pacify themselves, then you can safely move on, for good this time.
 
 &nbsp;
 
@@ -51,13 +51,13 @@ Try it.
 
 &nbsp;
 
-There&#8217;s no exit strategy, simply because you don&#8217;t need one.
+There's no exit strategy, simply because you don't need one.
 
 &nbsp;
 
 Connect with me via:
 
-[<img alt="facebook30px" src="http://www.gr0wing.com/wp-content/uploads/2013/03/facebook30px.png" width="30" height="30" />][1]<a href="http://www.facebook.com/GrowingTheRootsOfHappiness" target="_blank">My site&#8217;s FB page</a>
+[<img alt="facebook30px" src="http://www.gr0wing.com/wp-content/uploads/2013/03/facebook30px.png" width="30" height="30" />][1]<a href="http://www.facebook.com/GrowingTheRootsOfHappiness" target="_blank">My site's FB page</a>
 
 <a href="https://twitter.com/gaelblanchemain" target="_blank"><img alt="twitter30px" src="http://www.gr0wing.com/wp-content/uploads/2013/03/twitter30px.png" width="30" height="30" />My Twitter account</a>
 

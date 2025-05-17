@@ -22,17 +22,17 @@ tags:
   <a href="http://eyesuckink.com/"><img aria-describedby="caption-attachment-1114" class="size-medium wp-image-1114" title="&quot;The Trap&quot; - Alex Pardee" alt="" src="http://www.gr0wing.com/wp-content/uploads/2012/04/alexpardeepaintingthetrapcontest-198x300.jpg" width="198" height="300" /></a>
   
   <p id="caption-attachment-1114" class="wp-caption-text">
-    &#8220;The Trap&#8221; &#8211; Alex Pardee
+    "The Trap" &#8211; Alex Pardee
   </p>
 </div>
 
-&#8220;I&#8217;m shit&#8221;,  I&#8217;d repeat to myself, like a mantra.
+"I&#8217;m shit",  I&#8217;d repeat to myself, like a mantra.
 
 That was in 2008.
 
 I had dived into Buddhism head first, had become a Monk, meditated for thousands of hours, performed countless prostrations and visualizations. A decade through all that practice I was feeling worse than ever, had insane nightmares, anxiety attacks and a well rooted depression.
 
-&#8220;I didn&#8217;t get anywhere spiritually, I just screwed my life up&#8221; that&#8217;s all my poor old brain would come up with.
+"I didn&#8217;t get anywhere spiritually, I just screwed my life up" that&#8217;s all my poor old brain would come up with.
 
 I don&#8217;t like to throw the towel usually, but when I realized that I was keeping my religious vows only to avoid public embarrassment, I knew it was time to take a break from the spiritual life.
 
@@ -61,7 +61,7 @@ Let me list up a few common symptoms that you need to consider seriously:
 
 <ul style="list-style-type: square;">
   <li>
-    <span style="font-size: 13px; line-height: 19px;"><strong>Guilt</strong> &#8211; You feel guilty for any reason: for </span><span style="font-size: 13px; line-height: 19px;">not doing all your master said, for</span><span style="font-size: 13px; line-height: 19px;"> being a spiritual fraud,  for </span><span style="font-size: 13px; line-height: 19px;">indulging in &#8220;worldly pleasures&#8221; for </span>wishing to leave the community
+    <span style="font-size: 13px; line-height: 19px;"><strong>Guilt</strong> &#8211; You feel guilty for any reason: for </span><span style="font-size: 13px; line-height: 19px;">not doing all your master said, for</span><span style="font-size: 13px; line-height: 19px;"> being a spiritual fraud,  for </span><span style="font-size: 13px; line-height: 19px;">indulging in "worldly pleasures" for </span>wishing to leave the community
   </li>
   <li>
     <span style="font-size: 13px; line-height: 19px;"><strong>Worthlessness</strong> &#8211; your self-esteem has hit rock bottom </span>

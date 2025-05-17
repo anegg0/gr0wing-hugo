@@ -11,7 +11,7 @@ categories:
   - Howtos
 
 ---
-I&#8217;m not a dating specialist, those who know me personally could confirm, but there&#8217;s something I managed to accomplish lately (I should say &#8220;we&#8221; because my wife did 50% of the job): having a long-distance relationship that works.
+I&#8217;m not a dating specialist, those who know me personally could confirm, but there&#8217;s something I managed to accomplish lately (I should say "we" because my wife did 50% of the job): having a long-distance relationship that works.
 
 <div id="attachment_7068" style="width: 209px" class="wp-caption alignleft">
   <a href="https://www.facebook.com/DKPics"><img aria-describedby="caption-attachment-7068" class=" wp-image-7068 " alt="Vilma and I" src="http://www.gr0wing.com/wp-content/uploads/2013/12/1-199x300.jpg" width="199" height="300" srcset="https://www.gr0wing.com/wp-content/uploads/2013/12/1-199x300.jpg 199w, https://www.gr0wing.com/wp-content/uploads/2013/12/1.jpg 341w" sizes="(max-width: 199px) 100vw, 199px" /></a>
@@ -34,7 +34,7 @@ Below are my conclusions on 5 years of frustration and love, I made them practic
 
 ## The main perk
 
-Before saying &#8220;OK, let&#8217;s try&#8221;, you&#8217;re probably curious to know what&#8217;s in it for you and your newly met Sudanese NGO worker.  After all, you already suspect what&#8217;s NOT FUN about being away from each other: no sex, no cuddling, no eye contact (Skype is not a valid substitute). Fair enough, I understand.
+Before saying "OK, let&#8217;s try", you&#8217;re probably curious to know what&#8217;s in it for you and your newly met Sudanese NGO worker.  After all, you already suspect what&#8217;s NOT FUN about being away from each other: no sex, no cuddling, no eye contact (Skype is not a valid substitute). Fair enough, I understand.
 
 According to my experience, the main perk of long distance relationships is just that: you get tested, your limits are tested and you get to understand what&#8217;s under the hood of your couple, because let&#8217;s be honest: it&#8217;s going to be challenged all the time.
 
@@ -81,7 +81,7 @@ Why do that? Because you probably have other options right now, the girl next do
 
 #### 5-Slaughter jealousy
 
-What is she doing? With who? Who&#8217;s that f\***ing &#8220;Ernesto&#8221; she had dinner with last night?
+What is she doing? With who? Who&#8217;s that f\***ing "Ernesto" she had dinner with last night?
 
 Classify jealousy among the unavoidable side-effects of long-distance relationships. Unless you KNOW something&#8217;s happening, take a look at your own insecurities, they&#8217;re the ones messing around with your head, so save your distant partner from that burden.
 

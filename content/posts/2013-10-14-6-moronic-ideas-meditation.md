@@ -35,7 +35,7 @@ No. It won&#8217;t silence squat, as a matter of fact, you&#8217;ll become more 
   * A serious need to satisfy biological imperatives
   * Other totally anecdotal thoughts that normally cross your mind without you noticing
 
-On the bright side, you&#8217;ll be less and less affected by your own chaos. That sounds less dramatic than &#8220;inner peace&#8221;, but that&#8217;s actually what it amounts to :)
+On the bright side, you&#8217;ll be less and less affected by your own chaos. That sounds less dramatic than "inner peace", but that&#8217;s actually what it amounts to :)
 
 ## Meditation will improve your performance
 
@@ -43,7 +43,7 @@ Depends on what is meant by performance. If we&#8217;re talking about getting mo
 
 What might happen though is an increased capacity to focus and therefore a better use of your brain, but you don&#8217;t really need meditation for that, plain focus is enough.
 
-## Meditation&#8217;s like a therapy without the awkwardness of &#8220;seeing a shrink&#8221;
+## Meditation&#8217;s like a therapy without the awkwardness of "seeing a shrink"
 
 Sure!
 
@@ -57,7 +57,7 @@ If you feel mature enough to face your inner mess and take serious care of your 
 
 That misconception is more common among nay-sayers, those who have no experience whatsoever in meditation. However dumb their prejudice is, I have to concede that it contains an element of truth: the term meditation is so vague that it covers some serious New Age bullshit (visualisations with unicorns galloping in limitless fields of sunlight and whatnot).
 
-Practicing the regular &#8220;concentrative meditation&#8221; however is not going to make you see rainbows or aliens speaking in tongue. On the contrary it&#8217;ll ground you right here and now, which is somewhat more impressive than any <a href="http://www.erowid.org/psychoactives/" target="_blank">known psychedelic</a>.
+Practicing the regular "concentrative meditation" however is not going to make you see rainbows or aliens speaking in tongue. On the contrary it&#8217;ll ground you right here and now, which is somewhat more impressive than any <a href="http://www.erowid.org/psychoactives/" target="_blank">known psychedelic</a>.
 
 Mindfulness is not about getting anywhere else — Jon Kabat-Zinn
 

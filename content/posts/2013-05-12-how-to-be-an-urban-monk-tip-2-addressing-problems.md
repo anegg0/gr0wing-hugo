@@ -16,7 +16,7 @@ tags:
   - problem solving techniques
 
 ---
-This is my second post in the &#8220;How to be an Urban Monk&#8221; series.
+This is my second post in the "How to be an Urban Monk" series.
 
 For those who arrived late, the previous episode was about not wasting time. Today I&#8217;ll focus on problems and how to crush them consciously :)
 
@@ -24,21 +24,21 @@ For those who arrived late, the previous episode was about not wasting time. Tod
 
 I hope I&#8217;m not going to disappoint positive thinking lovers but the following article will not contain any mantra or affirmation. Sadly, these techniques never worked for me: trying to convince myself that I&#8217;m feeling good makes me anxious and paranoid, is that true for you?
 
-Anyway, I&#8217;ll start from another assumption: life is full of problems and we have no other choice but to face them. The Buddha used to tell his monks that &#8220;the world is filled with pain and sorrow&#8221; and for some reason I align with his view.
+Anyway, I&#8217;ll start from another assumption: life is full of problems and we have no other choice but to face them. The Buddha used to tell his monks that "the world is filled with pain and sorrow" and for some reason I align with his view.
 
 So far 50% of my experiences have consisted in facing difficulties and trying to cope with them.
 
 I guess pain is one of the few truly universal truths, it reaches everybody, plus it&#8217;s available in all formats and flavors: who doesn&#8217;t know what it&#8217;s like to be badly sick? Or attracting a long-term relationship with a mosquito? Or simply closing your trunk on the car&#8217;s keys?
 
-But what amazes me even more is the great variety of responses humans have when faced with problems: some get angry and accuse &#8220;the system&#8221;, some stay positive and apply problem solving techniques, others try hard to deny that anything&#8217;s wrong.
+But what amazes me even more is the great variety of responses humans have when faced with problems: some get angry and accuse "the system", some stay positive and apply problem solving techniques, others try hard to deny that anything&#8217;s wrong.
 
 Of all these strategies, I spotted a few that work flawlessly for me. They&#8217;re easy to understand although hard to apply. They&#8217;re also common practice among the people that I labeled <a title="Urban Monks" href="http://www.gaelblanchemain.com/urban-monks/" target="_blank">Urban Monks</a>.
 
-To make these tips clearer, I sequenced them from &#8220;**Phase 1**&#8220;: the moment we&#8217;re faced with a problem to &#8220;**Phase 2**&#8221; when we start actually solving it.
+To make these tips clearer, I sequenced them from "**Phase 1**": the moment we&#8217;re faced with a problem to "**Phase 2**" when we start actually solving it.
 
 # Phase 1: when problems hit you
 
-Have you ever been fired? Then you know what it feels like: the floor crumbles beneath you, you find yourself wondering if that&#8217;s actually happening. Weird thoughts fly across your mind like: &#8220;Why can&#8217;t I stop breathing?&#8221; or &#8220;Can someone help me breathe?&#8221;
+Have you ever been fired? Then you know what it feels like: the floor crumbles beneath you, you find yourself wondering if that&#8217;s actually happening. Weird thoughts fly across your mind like: "Why can&#8217;t I stop breathing?" or "Can someone help me breathe?"
 
 That&#8217;s a random example of how we feel under huge stress, in general it&#8217;s pretty violent, isn&#8217;t it?
 
@@ -91,7 +91,7 @@ Admitting you&#8217;ve started to  stabilize your mind and accept the situation
 One of my friends knows so much about Internet technologies that he&#8217;s almost dangerous. However he&#8217;s the one I call when I run out of solutions with a stuck computer.
 
 What always amazes me is how he addresses the situation:  
-Faced with a frozen screen, he gently rubs his chin and say: &#8220;Now, ain&#8217;t that interesting?&#8221; Then he starts asking questions on what happened, how and when. In his place I would just throw the damn computer out of the window.
+Faced with a frozen screen, he gently rubs his chin and say: "Now, ain&#8217;t that interesting?" Then he starts asking questions on what happened, how and when. In his place I would just throw the damn computer out of the window.
 
 I&#8217;ve tried to role model this friend of mine for a few years now, particularly by asking the right questions :)
 
@@ -103,7 +103,7 @@ You might already be familiar with this, in what case I&#8217;d like to pay ho
 
 ## Link the right meaning to problems
 
-&#8220;Problems are not stop signs, they are guidelines.&#8221;  
+"Problems are not stop signs, they are guidelines."  
 Robert H. Schuller
 
 Here&#8217;s something else with what I started experimenting recently: I call it consciousness hacking. I train my mind to perceive situations differently, particularly I focus on not linking problems with pain anymore.

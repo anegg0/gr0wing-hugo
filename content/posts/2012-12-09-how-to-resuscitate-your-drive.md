@@ -53,7 +53,7 @@ How can you tell if it&#8217;s time to take a break?
 
 When pleasure is gone.
 
-If you don&#8217;t experience any excitement doing what you&#8217;re doing, it often means you lost inspiration and gradually replaced it with &#8220;dirty fuels&#8221; like willpower, competition, pride and fear.  
+If you don&#8217;t experience any excitement doing what you&#8217;re doing, it often means you lost inspiration and gradually replaced it with "dirty fuels" like willpower, competition, pride and fear.  
 Of course trying to be the best is motivating, fear of being a loser can also be a compelling reason to act. But these motives generate anxiety and neurosis, they also hurt most of your creativity.
 
 I always prefer doing things with pleasure, I&#8217;m convinced that&#8217;s the best way to accomplish things.
@@ -68,7 +68,7 @@ So be it.
 
 Remember you were obviously not going anywhere being active, anyway&#8230;
 
-If you can manage to put a &#8220;in construction&#8221; flag on your project, and interrupt everything to replenish your motivation, you&#8217;re in good shape to move on to step 3:
+If you can manage to put a "in construction" flag on your project, and interrupt everything to replenish your motivation, you&#8217;re in good shape to move on to step 3:
 
 ### Enjoyment = second life
 

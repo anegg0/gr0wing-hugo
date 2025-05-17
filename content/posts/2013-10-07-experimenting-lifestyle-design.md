@@ -40,7 +40,7 @@ The less you own, the freer you are, at least that&#8217;s what my Buddhist educ
 **What phone plan should I subscribe to?** Not a 10 Go/Month thing, for sure. I don&#8217;t need to watch Vine movies in the train, thanks.  
 **What books do I really need?** Those that I can read within the next week. That&#8217;s it.
 
-Minimalism applied to a modern lifestyle is easy as long as you keep this rule in mind: **Unnecessary pain implies unnecessary rewards**: there&#8217;s a lot of &#8220;needs&#8221; that find their origin in a miserable job, for instance.  
+Minimalism applied to a modern lifestyle is easy as long as you keep this rule in mind: **Unnecessary pain implies unnecessary rewards**: there&#8217;s a lot of "needs" that find their origin in a miserable job, for instance.  
 I remember the damaging impact my marketing/sales job had on my mind a while ago and how I resorted to placebos to compensate the pain of spamming people for a paycheck. At the time I bought a brand new motorcycle (that I hated and sold 6 months later), I also smoked dreadful amounts of weed…to mention only a few. 
 
 Since then, the main thing I&#8217;ve been doing to cut down on useless possessions is to stop working in a cubicle and traveling more.
@@ -80,7 +80,7 @@ The two main recipients of my support are media and schools. There would be many
 
 ## Not relying on governments and large organizations
 
-Every organic fruit has a worm in it, that&#8217;s just natural. Yet, when the worm gets bigger than the fruit itself, it&#8217;s wiser to get rid of it. I feel the same way about most current governments, from the pure military dictatorships to the disguised totalitarian regimes (you might be interested in reading &#8220;[Manufactured consent][10]&#8221; for that matter).
+Every organic fruit has a worm in it, that&#8217;s just natural. Yet, when the worm gets bigger than the fruit itself, it&#8217;s wiser to get rid of it. I feel the same way about most current governments, from the pure military dictatorships to the disguised totalitarian regimes (you might be interested in reading "[Manufactured consent][10]" for that matter).
 
 I&#8217;ve also gained more awareness on how corporations operate during my years working with them. They&#8217;re disgusting and I don&#8217;t think any good can be expected from them. 
 

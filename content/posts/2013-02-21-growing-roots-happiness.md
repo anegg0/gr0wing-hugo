@@ -11,4 +11,4 @@ categories:
   - For lack of a better category
 
 ---
-WHAT ARE WE DOING HERE? WHERE ARE WE GOING? It&#8217;s our greatest call   There is no other
+WHAT ARE WE DOING HERE? WHERE ARE WE GOING? It's our greatest call   There is no other

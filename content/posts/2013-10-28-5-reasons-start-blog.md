@@ -15,7 +15,7 @@ tags:
   - procrastination
 
 ---
-The first time I heard about Blogging I found the idea laughable, &#8220;that&#8217;s a good hobby if you don&#8217;t have any life at all&#8221;, I thought. 
+The first time I heard about Blogging I found the idea laughable, "that&#8217;s a good hobby if you don&#8217;t have any life at all", I thought. 
 
 Who has the time to publish vegan leek-pie recipes, reviews on the latest update of Grand Theft Auto or even worse: PERSONAL OPINIONS? 
 
@@ -46,9 +46,9 @@ I might bore you to tears with my self-help lameness (I&#8217;m annoying myself 
 
 So how does blogging help with exterminating procrastination and half-assed commitments?
 
-It&#8217;s a fantastic way to use your audience as a witness. Each time you decide to make a life changing decision, you can tell your readers. **Once you make it publicly known that you&#8217;ve decided to stop injecting meth, for instance you hit the &#8220;publish&#8221; button and there is no coming back, everybody knows it and expects you to keep your word.** You can&#8217;t fail, or you would totally embarass yourself. You don&#8217;t want that, your readers don&#8217;t want that, no one wants that.
+It&#8217;s a fantastic way to use your audience as a witness. Each time you decide to make a life changing decision, you can tell your readers. **Once you make it publicly known that you&#8217;ve decided to stop injecting meth, for instance you hit the "publish" button and there is no coming back, everybody knows it and expects you to keep your word.** You can&#8217;t fail, or you would totally embarass yourself. You don&#8217;t want that, your readers don&#8217;t want that, no one wants that.
 
-That &#8220;accountability effect&#8221; has made a tremendous difference in me, in many cases Blogging plays the role of a power diary, it&#8217;s my companion, my confident, but also the coach that whips my butt to help me move on.
+That "accountability effect" has made a tremendous difference in me, in many cases Blogging plays the role of a power diary, it&#8217;s my companion, my confident, but also the coach that whips my butt to help me move on.
 
 ## Freedom and Independence
 

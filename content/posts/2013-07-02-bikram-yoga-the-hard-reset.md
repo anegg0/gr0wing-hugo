@@ -73,7 +73,7 @@ Now if you&#8217;re still in the mood for a try:
   * **Don&#8217;t play Superman. **If you&#8217;re a guy, save your energy to make it through the 90mn of class, play it smooth.
   * **Don&#8217;t come with an aerobic outfit.** Unless you&#8217;d like to commit suicide by heat. A brief is just fine.
   * **Don&#8217;t show late.** Come early enough in the class so you can take a cool spot and warm-up in the room.
-  * **Don&#8217;t confuse Bikram with its teachers .** Some neurotic teachers never open windows and praise the &#8220;No Pain, No Gain&#8221; approach. Chose another instructor if you don&#8217;t like to be in the army, there&#8217;s plenty of ways to teach Bikram Yoga, some will match your personality type. Be patient and keep going.
+  * **Don&#8217;t confuse Bikram with its teachers .** Some neurotic teachers never open windows and praise the "No Pain, No Gain" approach. Chose another instructor if you don&#8217;t like to be in the army, there&#8217;s plenty of ways to teach Bikram Yoga, some will match your personality type. Be patient and keep going.
   * **Don&#8217;t pay attention to the Bikram polemic.** It doesn&#8217;t matter what Bikram says (he&#8217;s provocative) or how old Yoga lovers consider him. If his style works for you, that should be good enough.
 
 &nbsp;

@@ -13,7 +13,7 @@ categories:
   - Urban Monk Buddhism
 
 ---
-#### &#8220;Patience is also a form of action.&#8221;  ~Auguste Rodin
+#### "Patience is also a form of action."  ~Auguste Rodin
 
 I used to think that patience was for the lazy, the passive, the last option when everything else has failed.
 
@@ -53,7 +53,7 @@ They don&#8217;t wait for things to get better in order to be happy, we shouldn&
 
 ### PATIENCE MAKES YOU SMART
 
-&#8220;Smart people are not hurried. Hurried people are not smart&#8221; &#8211; Chinese proverb.
+"Smart people are not hurried. Hurried people are not smart" &#8211; Chinese proverb.
 
 When you decide to be patient, you give your mind the time to think clearly about a situation. You don&#8217;t let your emotions take over and decide for you.
 

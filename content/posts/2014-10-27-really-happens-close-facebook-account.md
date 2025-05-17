@@ -19,15 +19,15 @@ Today, I deleted my Facebook account. Again (I already took a FB sabbatical, yea
 
 For the second time my neurotic brain came up with the same insecure drivel :
 
-> &#8220;What if I lose touch with all these people?&#8221;
+> "What if I lose touch with all these people?"
 > 
-> &#8220;What if somebody, somewhere, had something vital to tell me, and they could only find me on Facebook?&#8221;
+> "What if somebody, somewhere, had something vital to tell me, and they could only find me on Facebook?"
 > 
-> &#8220;How am I going to let the world know of my awesomeness, now that I don&#8217;t have a timeline?&#8221;
+> "How am I going to let the world know of my awesomeness, now that I don&#8217;t have a timeline?"
 
 I could sum up the above with a single embarrassing question:
 
-> &#8221; what happens when I&#8217;m dead?&#8221;
+> " what happens when I&#8217;m dead?"
 
 That&#8217;s really what&#8217;s at stake as you click the deletion confirmation.
 
@@ -35,7 +35,7 @@ That&#8217;s really what&#8217;s at stake as you click the deletion confirmation
 
 Facebook had been the online mirror reflecting my hopes, fears and contradictions, a virtual stage where I could rant and brag at will. Whatever I said met at worst with no likes, so who cared? I enjoyed my friends curating some of the worst content the Internet has to offer. In times of unemployment, Facebook even saved me from dying of social inanition.
 
-So I can&#8217;t really complain about my experience with the most successful social medium, except it&#8217;s such a <span style="text-decoration: underline;">time-thirsty vampire</span>, it&#8217;ll nibble at your schedule minute after minute, spurting notifications all day to make you stare at a &#8220;timeline&#8221; smeared with shitty quotes and unverified scientific studies you don&#8217;t care for anyway.
+So I can&#8217;t really complain about my experience with the most successful social medium, except it&#8217;s such a <span style="text-decoration: underline;">time-thirsty vampire</span>, it&#8217;ll nibble at your schedule minute after minute, spurting notifications all day to make you stare at a "timeline" smeared with shitty quotes and unverified scientific studies you don&#8217;t care for anyway.
 
 When I realized that social media was enrolling me in the army of living-dead mesmerized by  their smart-phones, I decided I needed to wake up.
 
@@ -55,7 +55,7 @@ So I just resumed to seeing my real buddies, with whom I could watch vietname
 
 ## And you get a lot of free-time, A LOT
 
-Without Facebook, you suddenly have so much time you can learn to speak Mandarin, work out, spend an hour calling random people on the phone or watch &#8220;<a href="http://www.amazon.com/gp/product/0783225903/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=0783225903&linkCode=as2&tag=grotherooofha-20&linkId=IO5DHSDMM5STMW3E" target="_blank">Brazil</a>&#8221; for  the 46th time. It&#8217;s almost obscene how much time 24 hours actually is without social media.
+Without Facebook, you suddenly have so much time you can learn to speak Mandarin, work out, spend an hour calling random people on the phone or watch "<a href="http://www.amazon.com/gp/product/0783225903/ref=as_li_tl?ie=UTF8&camp=1789&creative=9325&creativeASIN=0783225903&linkCode=as2&tag=grotherooofha-20&linkId=IO5DHSDMM5STMW3E" target="_blank">Brazil</a>" for  the 46th time. It&#8217;s almost obscene how much time 24 hours actually is without social media.
 
 What was I really doing on Facebook that took so much time? I&#8217;m still a bit disturbed when I think of all these long hours scrolling down, hoping for a comforting message or a mind-blowing post that never came.
 

@@ -15,7 +15,7 @@ tags:
   - zen computing
 
 ---
->   * &#8220;Simplify, simplify.&#8221; &#8211; Henri David Thoreau
+>   * "Simplify, simplify." &#8211; Henri David Thoreau
 
 Early in the digital age, a PC was just a box adorned with a flickering prompt, its deep numeric silence made focus and reflexion possible.
 
@@ -27,7 +27,7 @@ I wrapped it up below in case you want to apply them:
 
 ## Protect your focus
 
-In the digital media, everyone is battling for your attention , every single application and website wants you to clicks on their ads or to &#8220;go premium&#8221;. If you don&#8217;t take control of your focus, your computer will get you somewhere by default and you&#8217;ll gradually enter that vegetable state typical of digital oblivion. But you know what I&#8217;m talking about, anyway.
+In the digital media, everyone is battling for your attention , every single application and website wants you to clicks on their ads or to "go premium". If you don&#8217;t take control of your focus, your computer will get you somewhere by default and you&#8217;ll gradually enter that vegetable state typical of digital oblivion. But you know what I&#8217;m talking about, anyway.
 
 To make sure your computer remains a tool that helps you respond to important email and get your shit done,  you&#8217;d better take control.
 

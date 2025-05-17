@@ -66,7 +66,7 @@ Although life is still a complete mystery to me, I thought it&#8217;d be nice to
  49. Invest now, <a href="http://www.raptitude.com/2014/01/the-difference-between-being-good-with-money-and-bad-with-money/" target="_blank">spend later</a>.
  50. The French possess what Americans try to despise, and the Americans have plenty of what the French secretly long for.
  51. Seizing opportunities is not as important as letting go of those that would distract you.
- 52. &#8220;How does this work?&#8221; is what every kid asks, then they grow up. Too bad, this question becomes actually useful at adulthood.
+ 52. "How does this work?" is what every kid asks, then they grow up. Too bad, this question becomes actually useful at adulthood.
  53. If you&#8217;re an animal lover, you can&#8217;t decently eat them.
  54. Overtime, meditation will transform you completely. Overtime. Be patient.
  55. Men and Women would become basically the same thing if it wasn&#8217;t for what they&#8217;re told when they&#8217;re kids.

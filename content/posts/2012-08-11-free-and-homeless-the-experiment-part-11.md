@@ -78,7 +78,7 @@ My neighbor on the left is a real nice guy. We keep talking as he orders wine co
 
 ### Bastards
 
-I have to connect in Atlanta. There, I meet the &#8220;Homeland security&#8221; officers (you have to talk to these guys if you want to be accepted on the US territory).  
+I have to connect in Atlanta. There, I meet the "Homeland security" officers (you have to talk to these guys if you want to be accepted on the US territory).  
 I&#8217;m not welcome this time, I can tell. The officer in front of me  asks a loads of dumbass questions.  
 When I&#8217;m done answering, he asks them again. Then I&#8217;m sent to an interview with another officer.
 
@@ -88,10 +88,10 @@ That&#8217;s not pretty. A latino is interrogated in front of me. The guy doesn&
 
 The officer tells the latino that he doesn&#8217;t buy what he says. He raises his voice.  
 The latino guy tries to smile, in an impressive effort to be nice.  
-&#8220;I don&#8217;t like your smile, you making fun of me?&#8221;  
+"I don&#8217;t like your smile, you making fun of me?"  
 The translator converts all the bullying back to spanish, along with the angry tone and all. It&#8217;s pretty interesting: these people are paid to intimidate others.
 
-&#8220;Go sit, I&#8217;ll take your hat, I don&#8217; t want to see you with a hat, now&#8221;.  
+"Go sit, I&#8217;ll take your hat, I don&#8217; t want to see you with a hat, now".  
 The officer takes the guy&#8217;s hat. Puts it on a table behind him. Confiscated.  
 The latino goes back and sits quietly. God knows what&#8217;s next. They&#8217;ll probably send him back to his country.
 

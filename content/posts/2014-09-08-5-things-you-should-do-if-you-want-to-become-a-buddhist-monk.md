@@ -5,7 +5,7 @@ date: 2014-09-08T00:51:09+00:00
 categories: ["Buddhism"]
 tags: ["buddhism", "Buddhist monk", "Buddhist Monks", "meditation", "Tibetan"]
 ---
-<img class="alignleft size-medium wp-image-8534" src="http://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk-300x225.jpg" alt="5 things you should do if you want to become a Buddhist monk" width="300" height="225" srcset="https://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk-300x225.jpg 300w, https://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk-150x112.jpg 150w, https://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk.jpg 1024w" sizes="(max-width: 300px) 100vw, 300px" />A couple of years have passed since I wrote &#8220;4 things you should know if you want to be a Buddhist monk&#8221;. I was not aware this post would be read by 33000 people, many of whom subsequently emailed me about their project to embrace the simple and tough ascetic life.
+<img class="alignleft size-medium wp-image-8534" src="http://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk-300x225.jpg" alt="5 things you should do if you want to become a Buddhist monk" width="300" height="225" srcset="https://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk-300x225.jpg 300w, https://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk-150x112.jpg 150w, https://www.gr0wing.com/wp-content/uploads/2014/09/5-things-you-should-do-if-you-want-to-become-a-Buddhist-monk.jpg 1024w" sizes="(max-width: 300px) 100vw, 300px" />A couple of years have passed since I wrote "4 things you should know if you want to be a Buddhist monk". I was not aware this post would be read by 33000 people, many of whom subsequently emailed me about their project to embrace the simple and tough ascetic life.
 
 Some questions kept coming back, I thought it&#8217;d be nice to answers them in this follow up post which covers the concerns everyone seems to have (or should have) before taking monastic vows.
 
@@ -19,7 +19,7 @@ Still, I refrained from burning bridges with the world, because to be honest I h
 
 For instance, during these preliminary years I got a 9 to 5 job, rented my first apartment&#8230;and did everything normal people do besides from having kids. In the meantime, I studied and meditated as much as I could. This process took me four years.
 
-Looking back I don&#8217;t regret that gradual approach, it strengthened the roots of my motivation and protected me from a classic mistake: renouncing the world out of a sense of failure and emergency, running away from your responsibilities by adopting a new &#8220;spiritual&#8221; identity.
+Looking back I don&#8217;t regret that gradual approach, it strengthened the roots of my motivation and protected me from a classic mistake: renouncing the world out of a sense of failure and emergency, running away from your responsibilities by adopting a new "spiritual" identity.
 
 FYI: nearly all my fellow Monks who made a premature choice eventually went back to the world to get a taste of what they tried to avoid in the first place.
 

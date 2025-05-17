@@ -88,7 +88,7 @@ For lack of a better option, I took refuge in books. I read more last year than 
 
 Once again, desperation forced me into reading and loving it. But I gained momentum through that constraint and I&#8217;m not in the mood to stop.
 
-The funny part is that I realize now how few people enjoy books. The majority spends time on entertainment requiring less mental effort, reading Buzzfeed type posts: _&#8220;Look at these 20 strangers kissing for the first time&#8221;_ , or watching &#8220;real-life&#8221; people beat the crap out of each other. A good deal of the millennials can&#8217;t let go of video games where everything is totally dictated by the game itself.
+The funny part is that I realize now how few people enjoy books. The majority spends time on entertainment requiring less mental effort, reading Buzzfeed type posts: _"Look at these 20 strangers kissing for the first time"_ , or watching "real-life" people beat the crap out of each other. A good deal of the millennials can&#8217;t let go of video games where everything is totally dictated by the game itself.
 
 Definitely, homelessness protects you from those brain-gellifiers, it&#8217;s somewhat good not to have a TV, or a PS3, as you&#8217;re forced to think out of the Status Quo, and you realize that a lot of classic reads are revolutionary and totally against the current intellectual orthodoxy.
 

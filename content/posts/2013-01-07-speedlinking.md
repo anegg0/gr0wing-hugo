@@ -32,7 +32,7 @@ Firstly, happy new year!
 
 I wish you the best mindset and lots of meaningful experiences for 2013.
 
-<a href="http://www.gr0wing.com/about-this-blog/" target="_blank">&#8220;Growing The Roots Of Happiness&#8221;</a> hasn&#8217;t celebrated its first year of existence yet, but its audience is increasing rapidly, I&#8217;m happy to count you among those who&#8217;ll be able to say they have seen this project start :)
+<a href="http://www.gr0wing.com/about-this-blog/" target="_blank">"Growing The Roots Of Happiness"</a> hasn&#8217;t celebrated its first year of existence yet, but its audience is increasing rapidly, I&#8217;m happy to count you among those who&#8217;ll be able to say they have seen this project start :)
 
 I&#8217;d also like to share a few websites/blog that I&#8217;ve discovered and liked, so you can start this year with material to support your efforts toward more happiness and growth:
 
@@ -71,7 +71,7 @@ I&#8217;d also like to share a few websites/blog that I&#8217;ve discovered and 
 </p>
 
 <p style="text-align: left;">
-  Also: try to pay &#8220;Letters of Note&#8221; a visit, this website collects letters from various artists/writers, some of them are brilliant:<br /> h<a href="http://www.lettersofnote.com/2012/12/best-of-2012.html" target="_blank">ttp://www.lettersofnote.com/2012/12/best-of-2012.html</a>
+  Also: try to pay "Letters of Note" a visit, this website collects letters from various artists/writers, some of them are brilliant:<br /> h<a href="http://www.lettersofnote.com/2012/12/best-of-2012.html" target="_blank">ttp://www.lettersofnote.com/2012/12/best-of-2012.html</a>
 </p>
 
 <h3 style="text-align: left;">
@@ -79,7 +79,7 @@ I&#8217;d also like to share a few websites/blog that I&#8217;ve discovered and 
 </h3>
 
 <p style="text-align: left;">
-  Online marketers claim that they&#8217;ll get you enlightened in 2 secs if you register to their &#8220;meditation&#8221; website, they don&#8217;t know what they&#8217;re talking about.
+  Online marketers claim that they&#8217;ll get you enlightened in 2 secs if you register to their "meditation" website, they don&#8217;t know what they&#8217;re talking about.
 </p>
 
 <p style="text-align: left;">
@@ -99,7 +99,7 @@ I&#8217;d also like to share a few websites/blog that I&#8217;ve discovered and 
 </p>
 
 <p style="text-align: left;">
-  The iPhone&#8217;s terrible &#8220;autocorrect&#8221; functionality generates so many misunderstandings that there is a whole website just about that!: <a href="http://www.damnyouautocorrect.com" target="_blank">http://www.damnyouautocorrect.com</a>
+  The iPhone&#8217;s terrible "autocorrect" functionality generates so many misunderstandings that there is a whole website just about that!: <a href="http://www.damnyouautocorrect.com" target="_blank">http://www.damnyouautocorrect.com</a>
 </p>
 
 <p style="text-align: left;">

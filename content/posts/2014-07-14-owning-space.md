@@ -22,13 +22,13 @@ Good thing I don&#8217;t have insecurities about the size of my nose or anything
 
 I&#8217;m sure that soon a Japanese architect will come up with beehive shaped elevators, so that every occupant can literally turn their backs on each other, saving everyone the discomfort of a live conversation.
 
-Now, it&#8217;d be so much easier to pull out my phone and shuffle through the avalanche of platitudes of my Instagram timeline instead of trying to banter with strangers. But I haven&#8217;t surrendered yet. I still want to hear the same platitudes from a live person in front of me, someone who needs more than just another &#8220;like&#8221; to their comments.
+Now, it&#8217;d be so much easier to pull out my phone and shuffle through the avalanche of platitudes of my Instagram timeline instead of trying to banter with strangers. But I haven&#8217;t surrendered yet. I still want to hear the same platitudes from a live person in front of me, someone who needs more than just another "like" to their comments.
 
 This elevator issue reveals much more about us modern humans: we have a problem just being ourselves and enjoy each other&#8217;s presence.
 
 To accommodate this growing insecurity, modern premises are carefully designed to annihilate silence, clubs use insane sound volumes, restaurants joined the decibel race too: last time Vilma and I went to eat Korean food, the pants wobbling sound system prevented any form of articulate conversation between us, we spend the entire meal staring at each other silently like a couple who recently lost their child.
 
-Yet, while social skills atrophy, a minority seems resilient to that plague, they privilege &#8220;regular&#8221; social time over social media,  they carefully select crappy Java phones that can barely send and receive texts, they log in Facebook once a month, they like time on their own.
+Yet, while social skills atrophy, a minority seems resilient to that plague, they privilege "regular" social time over social media,  they carefully select crappy Java phones that can barely send and receive texts, they log in Facebook once a month, they like time on their own.
 
 I hate how they respond to my messages with a three weeks delay, but I secretly admire how these people don&#8217;t get swallowed by the social-media diktat, how they still own their space, and time&#8230;I also love the fact that  they can share that freedom with me: they will listen patiently to what I say without checking email!
 

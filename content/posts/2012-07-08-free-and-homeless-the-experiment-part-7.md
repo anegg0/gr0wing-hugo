@@ -24,14 +24,14 @@ tags:
 
 ---
 <p style="background-color: silver;">
-  <strong>I left <a title="Free and homeless: the experiment – part 6" href="http://www.gr0wing.com/free-and-homeless-the-experiment-part-6/" target="_blank">San-Pedro</a> to continue my tour in Lake Atitlan</strong><br /> <strong>I picked San Marcos, i</strong><strong>t&#8217;s a nice place.<br /> Today&#8217;s episode: </strong>&#8220;<strong>San Marcos: get a rest and BREATHE.</strong>&#8220;
+  <strong>I left <a title="Free and homeless: the experiment – part 6" href="http://www.gr0wing.com/free-and-homeless-the-experiment-part-6/" target="_blank">San-Pedro</a> to continue my tour in Lake Atitlan</strong><br /> <strong>I picked San Marcos, i</strong><strong>t's a nice place.<br /> Today's episode: </strong>"<strong>San Marcos: get a rest and BREATHE.</strong>"
 </p>
 
 ### 
 
 San Marcos is sweet. Feels good to be there for a little while,
 
-<!--more-->the village is my second stop-over in Lake Atitlan. It&#8217;s 5 mn away from San Pedro by boat, but it&#8217;s another planet.
+<!--more-->the village is my second stop-over in Lake Atitlan. It's 5 mn away from San Pedro by boat, but it's another planet.
 
 &nbsp;
 
@@ -47,9 +47,9 @@ I set foot in San Marcos on a small wooden pier with trees all around. They must
   </p>
 </div>
 
-And they&#8217;ve banned noise too, they only let the birds sing. Water ripples quietly. Nothing is happening and I like it.
+And they've banned noise too, they only let the birds sing. Water ripples quietly. Nothing is happening and I like it.
 
-I drag myself looking for a hotel, there&#8217;s no rush. The few people I come across are smiling neo-hippies and local people. The vibe is so much different from San Pedro. I&#8217;ve been warned that I might want to stay for a while.
+I drag myself looking for a hotel, there's no rush. The few people I come across are smiling neo-hippies and local people. The vibe is so much different from San Pedro. I've been warned that I might want to stay for a while.
 
 A dense and friendly vegetation protects the streets. As I check around,  my mind tunes up with stillness.
 
@@ -61,13 +61,13 @@ A dense and friendly vegetation protects the streets. As I check around,  my mi
   </p>
 </div>
 
-I&#8217;m not at home, but the environment is so compatible with any life form that I feel right.
+I'm not at home, but the environment is so compatible with any life form that I feel right.
 
 Even Hitler would feel good here, he would possibly drop his moronic projects of holocaust and world domination for a walk by the lake.  
 I secretly hope to stay for a week, maybe two?
 
 <p style="text-align: center;">
-  Even though I&#8217;m not in a mood to socializing too much, I meet a cat, he confirms me that there&#8217;s nothing to worry about in San Marcos.<img class="size-medium wp-image-3269 aligncenter" title="The-Cat" src="http://www.gr0wing.com/wp-content/uploads/2012/07/The-Cat-275x300.jpg" alt="" width="275" height="300" srcset="https://www.gr0wing.com/wp-content/uploads/2012/07/The-Cat-275x300.jpg 275w, https://www.gr0wing.com/wp-content/uploads/2012/07/The-Cat.jpg 478w" sizes="(max-width: 275px) 100vw, 275px" />Cats don&#8217;t speak, but they have their ways of passing a message.
+  Even though I'm not in a mood to socializing too much, I meet a cat, he confirms me that there's nothing to worry about in San Marcos.<img class="size-medium wp-image-3269 aligncenter" title="The-Cat" src="http://www.gr0wing.com/wp-content/uploads/2012/07/The-Cat-275x300.jpg" alt="" width="275" height="300" srcset="https://www.gr0wing.com/wp-content/uploads/2012/07/The-Cat-275x300.jpg 275w, https://www.gr0wing.com/wp-content/uploads/2012/07/The-Cat.jpg 478w" sizes="(max-width: 275px) 100vw, 275px" />Cats don't speak, but they have their ways of passing a message.
 </p>
 
 **New age & Sausage.**
@@ -80,30 +80,30 @@ I secretly hope to stay for a week, maybe two?
   </p>
 </div>
 
-There&#8217;s more yoga schools than grocery stores in San Marcos.
+There's more yoga schools than grocery stores in San Marcos.
 
-It&#8217;s a New Age hub.
+It's a New Age hub.
 
-If you&#8217;re on the edge of a nervous breakdown after two furious months of Meth binge in San Pedro, hop in a boat and go to San Marcos. You&#8217;ll get a relief. You might even become an adept of Kabbalah, Astral travelling or Ayurvedic enemas.
+If you're on the edge of a nervous breakdown after two furious months of Meth binge in San Pedro, hop in a boat and go to San Marcos. You'll get a relief. You might even become an adept of Kabbalah, Astral travelling or Ayurvedic enemas.
 
-I&#8217;ve always found New Age material funny and quite sympathetic. Some will argue that it mixes up everything and that most sects start as New Age movements. There&#8217;s probably more positive qualities in the New Age area, I guess, you just don&#8217;t want to be picky about what kind of spiritual mixture it&#8217;s made of, it&#8217;s like sausages.
+I've always found New Age material funny and quite sympathetic. Some will argue that it mixes up everything and that most sects start as New Age movements. There's probably more positive qualities in the New Age area, I guess, you just don't want to be picky about what kind of spiritual mixture it's made of, it's like sausages.
 
-I won&#8217;t get a chance to engage in a course, for lack of internet connexion, I have to move back to San Pedro :(  
+I won't get a chance to engage in a course, for lack of internet connexion, I have to move back to San Pedro :(  
 However, the programs offered by local New Age schools look comprehensive, to say the least:
 
 <div id="attachment_3285" style="width: 650px" class="wp-caption aligncenter">
   <img aria-describedby="caption-attachment-3285" class="size-full wp-image-3285" title="Program-New-Age" src="http://www.gr0wing.com/wp-content/uploads/2012/07/Program-New-Age.jpg" alt="" width="640" height="371" srcset="https://www.gr0wing.com/wp-content/uploads/2012/07/Program-New-Age.jpg 640w, https://www.gr0wing.com/wp-content/uploads/2012/07/Program-New-Age-300x173.jpg 300w, https://www.gr0wing.com/wp-content/uploads/2012/07/Program-New-Age-588x340.jpg 588w" sizes="(max-width: 640px) 100vw, 640px" />
   
   <p id="caption-attachment-3285" class="wp-caption-text">
-    What would you pick? I&#8217;d go with &#8220;Shaluha Ka&#8221; although I have no clue what that is
+    What would you pick? I'd go with "Shaluha Ka" although I have no clue what that is
   </p>
 </div>
 
-That was a short stay (a day and a half) but I&#8217;ll keep San Marcos in mind as a sweet haven for peace makers and spiritual seekers and I sincerely hope I can come back.
+That was a short stay (a day and a half) but I'll keep San Marcos in mind as a sweet haven for peace makers and spiritual seekers and I sincerely hope I can come back.
 
 Stay in touch, will post some more on Latin America next time.
 
-I&#8217;d be happy to stay in touch with you, if you didn&#8217;t befriend me already:
+I'd be happy to stay in touch with you, if you didn't befriend me already:
 
 [Friend me on the book of faces][1]
 

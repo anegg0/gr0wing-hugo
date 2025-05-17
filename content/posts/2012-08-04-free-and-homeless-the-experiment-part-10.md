@@ -23,7 +23,7 @@ tags:
   I&#8217;ve often compromised my freedom for money,<br /> but I&#8217;d like to solve that<span style="background-color: silver;"> dilemma, now.<br /> Not sure I can, but I&#8217;ll try.</span>
 </p>
 
-10th Episode: &#8220;Money&#8221;.
+10th Episode: "Money".
 
 I love to be free and not go to work, but freedom doesn&#8217;t pay much (and I **HATE** being broke).<!--more-->
 

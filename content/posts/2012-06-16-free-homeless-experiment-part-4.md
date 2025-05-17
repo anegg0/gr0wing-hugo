@@ -57,7 +57,7 @@ It takes time but I see no other way to switch from a retarded vision of 80% of 
 
 Changing subject here&#8217;s an interesting comment I received about the <a title="Free and homeless: the experiment – part 1" href="http://www.gr0wing.com/free-and-homeless-part-1/" target="_blank">first post of my homeless experiment</a>:
 
-**_&#8220;Very interesting that you&#8217;re doing this at 39. And also a bit scary. Slumming around the world in your 30s and 40s is a LOT different than doing it in your 20s.&#8221;_**
+**_"Very interesting that you&#8217;re doing this at 39. And also a bit scary. Slumming around the world in your 30s and 40s is a LOT different than doing it in your 20s."_**
 
 Funny to see how reactions can vary depending on people, since **a lot of other people loved this project and want to try it as well**.
 

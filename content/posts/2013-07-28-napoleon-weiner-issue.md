@@ -14,7 +14,7 @@ tags:
   - problem solving
 
 ---
-_&#8220;Why cover the earth with leather? A pair of shoes is enough&#8221;_ &#8211; Shantideva
+_"Why cover the earth with leather? A pair of shoes is enough"_ &#8211; Shantideva
 
 &nbsp;
 

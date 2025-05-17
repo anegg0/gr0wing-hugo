@@ -18,7 +18,7 @@ tags:
 ---
 Understanding Buddhism, learning how to meditate&#8230;You might have contemplated the idea for a while, maybe even for years. Yet nobody told you what to begin with and you&#8217;d rather avoid falling into a weird cult or a New Age group.
 
-If you&#8217;re sick of misattributed Facebook quotes from the Buddha or &#8220;10 ways to be insanely happy right now&#8221; kind of literature this post might help you dig right at the core of this 2500 year old spirituality. I wrote it as a roadmap, geared towards those who wish a direct experience of Buddhism as a path of transformation.
+If you&#8217;re sick of misattributed Facebook quotes from the Buddha or "10 ways to be insanely happy right now" kind of literature this post might help you dig right at the core of this 2500 year old spirituality. I wrote it as a roadmap, geared towards those who wish a direct experience of Buddhism as a path of transformation.
 
 Whatever your  background or country may be, here&#8217;s is a sequence of actions to take your first steps with Buddhism philosophy and practice, in a safe and gradual way.
 
@@ -80,7 +80,7 @@ Now, here&#8217;s a few criteria you should check to so you don&#8217;t waste ti
 #### &#8211; The crew:
 
 What I mean by the crew is the Buddhist followers you&#8217;re going to practice with.  
-They matter, you&#8217;ll like them or not, it totally depends on your personality, but bear in mind that Buddhism is not meant to be always practiced on your own: you need the support of a &#8220;Sangha&#8221; (spiritual community) to progress on that path. Ideally they&#8217;ll inspire and advise you, they&#8217;ll be there as friends who share a common interest for Buddhism.
+They matter, you&#8217;ll like them or not, it totally depends on your personality, but bear in mind that Buddhism is not meant to be always practiced on your own: you need the support of a "Sangha" (spiritual community) to progress on that path. Ideally they&#8217;ll inspire and advise you, they&#8217;ll be there as friends who share a common interest for Buddhism.
 
 After meeting with the beginners and the seniors ask yourself: would you gladly spend a few hours every months with them? See what answer you come up with, that&#8217;s already a clue whether you belong to this group or not.
 
@@ -94,7 +94,7 @@ Don&#8217;t leave your guts feelings at the door, you&#8217;ll need it more than
 
 #### -The practice:
 
-Meditation has gained so much popularity that we often assume the word covers one single practice: it&#8217;s far more complex than that. In Buddhism, meditation means &#8220;training the mind&#8221; and it includes dozens of different mind trainings.  
+Meditation has gained so much popularity that we often assume the word covers one single practice: it&#8217;s far more complex than that. In Buddhism, meditation means "training the mind" and it includes dozens of different mind trainings.  
 In this plethora of tools, you&#8217;ll need to see what meditative transmission feels right for you. Attend practice events, sit on a cushion and experience for yourself the many forms of meditation traditions have to offer.  
 Same thing for the liturgy: it is meant to inspire you for the better, so if it turns you off, try some other place&#8230;
 
@@ -104,7 +104,7 @@ I&#8217;m always amazed how candid most of us are when it comes to Buddhism, we 
 
 In reality, Buddhism has also survived thanks to the organizations supporting it, and they&#8217;re often as corrupt as any other. Where there&#8217;s a system, you&#8217;ll find money and power nibbling every bit of spiritual authenticity present in a tradition.
 
-In order to avoid heart breaks in the long run, check out the records of the institution representing the lineages you&#8217;re interested in. They can be found online. The quick and dirty tip: google &#8220;scandal [name of the center]&#8221;.
+In order to avoid heart breaks in the long run, check out the records of the institution representing the lineages you&#8217;re interested in. They can be found online. The quick and dirty tip: google "scandal [name of the center]".
 
 The purpose of this background check is not to scare you away from each Buddhist organization but to avoid falling in a scam.
 

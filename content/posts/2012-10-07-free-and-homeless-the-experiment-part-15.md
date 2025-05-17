@@ -37,7 +37,7 @@ It looks like a garden.
 
 ### There&#8217;s a garden I still remember
 
-It&#8217;s supposed to be a &#8220;Buddhist Retreat Center&#8221; but it&#8217;s just a house lost in the countryside.
+It&#8217;s supposed to be a "Buddhist Retreat Center" but it&#8217;s just a house lost in the countryside.
 
 <img class="aligncenter size-full wp-image-3744" title="The Buddhist Center" src="http://www.gr0wing.com/wp-content/uploads/2012/10/house.jpg" alt="" width="613" height="332" srcset="https://www.gr0wing.com/wp-content/uploads/2012/10/house.jpg 613w, https://www.gr0wing.com/wp-content/uploads/2012/10/house-300x162.jpg 300w, https://www.gr0wing.com/wp-content/uploads/2012/10/house-588x318.jpg 588w" sizes="(max-width: 613px) 100vw, 613px" /> 
 
@@ -49,7 +49,7 @@ He&#8217;s Tibetan, and a meditation master. He was given honorific titles and a
 For what I know, he only cares about people, birds and all other living creatures.
 
 He&#8217;s kind with birds: he feeds them everyday with great attention.  
-&#8220;You need to distribute the food evenly on the ground so birds don&#8217;t have to fight.&#8221; he says.
+"You need to distribute the food evenly on the ground so birds don&#8217;t have to fight." he says.
 
 He treats people with the same kindness. Gives them meditation instructions and encouragements.
 

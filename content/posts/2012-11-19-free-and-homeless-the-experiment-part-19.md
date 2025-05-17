@@ -63,7 +63,7 @@ The radio stopped.
 And she stopped bullshiting the world. Maybe she didn&#8217;t have enough strength to sustain this high maintenance fabrication anymore.
 
 Her mindset flipped out completely from rosy delusions to a nihilistic nightmare.  
-She started hating life, just as brutally as she had &#8220;loved&#8221; it.  
+She started hating life, just as brutally as she had "loved" it.  
 She would say that nothing had any meaning. That existence was pain, solitude and agony in the end.  
 My Great-aunt died in an ocean of depression, rejecting everything, vomiting the entire world.
 

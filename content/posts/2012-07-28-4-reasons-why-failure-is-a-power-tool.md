@@ -32,7 +32,7 @@ I put together 4 good reasons to dump your fear of failure  and move on no matt
 
 ### #1 &#8211; Fail = grow a brain
 
-&#8220;Reality is when you bump into things&#8221; &#8211; Jacques Lacan
+"Reality is when you bump into things" &#8211; Jacques Lacan
 
 Do you think you&#8217;re smart enough to know if a new idea will work in reality?
 
@@ -107,7 +107,7 @@ I&#8217;m not going to claim I&#8217;m a honey badger, but it takes me some fait
 
 What about you?
 
-Do you still hesitate to take the messy path of &#8220;try, fail, do it again&#8221;?
+Do you still hesitate to take the messy path of "try, fail, do it again"?
 
 Do you really believe you have a choice?
 

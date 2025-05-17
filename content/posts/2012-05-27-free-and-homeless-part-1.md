@@ -35,7 +35,7 @@ I had been doing well professionally for 4 years, but my luck had run out. I wa
 
 ANOTHER JOB
 
-Probably a &#8220;day job&#8221;.
+Probably a "day job".
 
 9 to 5 and all.
 

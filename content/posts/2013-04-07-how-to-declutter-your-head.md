@@ -68,7 +68,7 @@ Fridges, cars, computers everything down to your coffee machine.
 All that you own is not necessarily useful, still it&#8217;s always a reason for concern.  
 And that stuff is programmed to be obsolete in 5 years on average. That means these objects WILL break and cause you trouble. You&#8217;ll have to call help centers, find the invoices, return the items. You&#8217;ve been there, so you know what I&#8217;m talking about.
 
-To avoid that, cut the problem at its root: every time you&#8217;re about to click on the &#8220;buy now&#8221; button for a feature rich iMixer, don&#8217;t forget all the hassle that&#8217;s awaiting on you in a few months/years.
+To avoid that, cut the problem at its root: every time you&#8217;re about to click on the "buy now" button for a feature rich iMixer, don&#8217;t forget all the hassle that&#8217;s awaiting on you in a few months/years.
 
 The equation is simple: the less you own > the less  you worry > the calmer you get.
 

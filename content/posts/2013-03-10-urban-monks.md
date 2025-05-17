@@ -18,7 +18,7 @@ tags:
 ---
 Thousands of people are evolving to become urban monks.
 
-I&#8217;m one of them, you might be one too.
+I'm one of them, you might be one too.
 
 &nbsp;
 
@@ -26,16 +26,16 @@ In my case, I used to <a title="About" href="http://www.gr0wing.com/about-2/" ta
 
 I felt incomplete, and I also thought it was possible to bring most of the <a title="4 Buddhist Monks habits you could apply everyday" href="http://www.gr0wing.com/4-buddhist-monks-habits-you-could-apply-everyday/" target="_blank">monastic positive habits</a> down to the city.
 
-Today I&#8217;m convinced that we need guidelines to be happier, and that we can safely re-use monastic habits to improve our urban lives.
+Today I'm convinced that we need guidelines to be happier, and that we can safely re-use monastic habits to improve our urban lives.
 
-I&#8217;ve been experimenting with this approach for 5 years, and I met many other people who did it as well.
+I've been experimenting with this approach for 5 years, and I met many other people who did it as well.
 
-I&#8217;ll call them urban monks and here&#8217;s what they have in common:
+I'll call them urban monks and here's what they have in common:
 
   1. They have simplified their life as much as possible
   2. They practice mindfulness or Buddhist meditation
-  3. They&#8217;re actively committed to make a difference in their community (local and global)
-  4. They&#8217;re tech savvy and make a smart use of online technologies
+  3. They're actively committed to make a difference in their community (local and global)
+  4. They're tech savvy and make a smart use of online technologies
 
 <!--more-->
 
@@ -45,7 +45,7 @@ More particularly, these people have designed their lives around the values of S
 
 ### Simplicity
 
-While a large part of the world&#8217;s population still daydreams about swimming pools, over-sized limos and golden toilet seats, many others have adopted another perspective: they don&#8217;t think of being rich as a goal in itself. And they don&#8217;t want to clutter their homes with more possessions either.
+While a large part of the world's population still daydreams about swimming pools, over-sized limos and golden toilet seats, many others have adopted another perspective: they don't think of being rich as a goal in itself. And they don't want to clutter their homes with more possessions either.
 
 This kind of  attitude is based on <a href="http://zenhabits.net/the-four-laws-of-simplicity-and-how-to-apply-them-to-life/" target="_blank">Simplicity</a>: the art of being happy with less.
 
@@ -56,9 +56,9 @@ Such a lifestyle has a sound reasoning behind it, the idea that, in order to be 
   * Our physical needs to be covered
   * Our emotional needs to bo satisfied
 
-And it doesn&#8217;t take a lot to cover these necessities, just food, a roof, some medicine, friends and family. Add to that spirituality and a sense of contribution and you&#8217;re good to go.
+And it doesn't take a lot to cover these necessities, just food, a roof, some medicine, friends and family. Add to that spirituality and a sense of contribution and you're good to go.
 
-According to monastic discipline, owning more than that is just toxic. Watch the <a href="http://en.wikipedia.org/wiki/The_Real_Housewives_of_New_Jersey" target="_blank">Real Housewives of New Jersey</a> to find convincing examples of how excess money can affect your brain (don&#8217;t try this at home!).
+According to monastic discipline, owning more than that is just toxic. Watch the <a href="http://en.wikipedia.org/wiki/The_Real_Housewives_of_New_Jersey" target="_blank">Real Housewives of New Jersey</a> to find convincing examples of how excess money can affect your brain (don't try this at home!).
 
 &nbsp;
 
@@ -70,9 +70,9 @@ According to monastic discipline, owning more than that is just toxic. Watch th
 
 &nbsp;
 
-There&#8217;s no need to become a millionaire to have a healthy, balanced life, it just takes **values**, **work** and **creativity**.
+There's no need to become a millionaire to have a healthy, balanced life, it just takes **values**, **work** and **creativity**.
 
-Becoming an urban monk doesn&#8217;t imply living cheaply though, many of the urban monks I know are very well-off.
+Becoming an urban monk doesn't imply living cheaply though, many of the urban monks I know are very well-off.
 
 &nbsp;
 
@@ -80,7 +80,7 @@ Another common feature of urban monks is their awareness of others:
 
 ### Interdependence
 
-Humans are social animals, we all need a tribe, familiar people to communicate with, don&#8217;t we?
+Humans are social animals, we all need a tribe, familiar people to communicate with, don't we?
 
 And not only that, but we need nature to provide the air that we breathe, the food that we eat and the climate that sustains our life.
 
@@ -94,7 +94,7 @@ So far, the dominating model of society has put emphasis on being individualist
 
 &nbsp;
 
-Since governments and corporations don&#8217;t do much to take up these challenges, individuals are now taking the lead.
+Since governments and corporations don't do much to take up these challenges, individuals are now taking the lead.
 
 &nbsp;
 
@@ -111,7 +111,7 @@ The Internet made it much easier to connect with like-minded individuals who are
 They live in Europe Canada the US and all other parts of the world.  
 <img class="size-full wp-image-5063 alignleft" alt="portraits-urban-monks" src="http://www.gr0wing.com/wp-content/uploads/2013/03/portraits-urban-monks.jpg" width="500" height="128" srcset="https://www.gr0wing.com/wp-content/uploads/2013/03/portraits-urban-monks.jpg 500w, https://www.gr0wing.com/wp-content/uploads/2013/03/portraits-urban-monks-300x76.jpg 300w" sizes="(max-width: 500px) 100vw, 500px" /> 
 
-Here&#8217;s a short list of people that I identified as urban monks, you might want to look into their blogs and activities:
+Here's a short list of people that I identified as urban monks, you might want to look into their blogs and activities:
 
 &#8211; <a href="http://zenpeacemakers.org/bernie-glassman/" target="_blank"><strong>Bernie Glassman</strong></a> <a href="https://www.facebook.com/bernie.glassman.7?fref=ts" target="_blank">connect with him on FB</a>
 
@@ -127,9 +127,9 @@ Here&#8217;s a short list of people that I identified as urban monks, you might
 
 &nbsp;
 
-Feel free to connect with me if you recognize yourself in that way of life, I&#8217;d be happy to know you and share connections :)
+Feel free to connect with me if you recognize yourself in that way of life, I'd be happy to know you and share connections :)
 
-[<img alt="facebook30px" src="http://www.gr0wing.com/wp-content/uploads/2013/03/facebook30px.png" width="30" height="30" />][1]<a href="http://www.facebook.com/GrowingTheRootsOfHappiness" target="_blank">My site&#8217;s FB page</a>
+[<img alt="facebook30px" src="http://www.gr0wing.com/wp-content/uploads/2013/03/facebook30px.png" width="30" height="30" />][1]<a href="http://www.facebook.com/GrowingTheRootsOfHappiness" target="_blank">My site's FB page</a>
 
 <a href="https://twitter.com/gaelblanchemain" target="_blank"><img alt="twitter30px" src="http://www.gr0wing.com/wp-content/uploads/2013/03/twitter30px.png" width="30" height="30" />My Twitter account</a>
 

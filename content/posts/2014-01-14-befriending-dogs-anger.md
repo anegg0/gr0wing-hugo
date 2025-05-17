@@ -39,7 +39,7 @@ While you might feel awkward during the first seconds of this exercise, you&#821
 
 ## Watch your mental firework
 
-Anger is like a comet followed by a blazing trail of thoughts. This emotion tends to wake up our darkest thinking patterns and it&#8217;s tempting to react on them. Just remember that mental agitation is totally harmless as long as you don&#8217;t contribute to it. Let thoughts go, don&#8217;t engage in the &#8220;How could he?&#8221; or &#8220;I should have…&#8221; type of questions. Just let the chatter happen.
+Anger is like a comet followed by a blazing trail of thoughts. This emotion tends to wake up our darkest thinking patterns and it&#8217;s tempting to react on them. Just remember that mental agitation is totally harmless as long as you don&#8217;t contribute to it. Let thoughts go, don&#8217;t engage in the "How could he?" or "I should have…" type of questions. Just let the chatter happen.
 
 Serenity is not so much a matter of inner silence, it&#8217;s about how relaxed you can be with your own thoughts.  
 Enjoy the inner show, it can&#8217;t harm you if you don&#8217;t take part in it.

@@ -98,7 +98,7 @@ tags:
   </p>
   
   <p class="p1">
-    <span class="s1"><b>People call you “Sir&#8221;</b></span>
+    <span class="s1"><b>People call you “Sir"</b></span>
   </p>
   
   <p class="p1">
@@ -161,7 +161,7 @@ tags:
   </p>
   
   <p class="p1">
-    <span class="s1">“Just bring it on!” you think, be it to nasty taxi drivers or hustlers of any kind. The world can still try to bully you but now you&#8217;re on the right side of the gun and you don&#8217;t take no shit no more&#8221;.</span>
+    <span class="s1">“Just bring it on!” you think, be it to nasty taxi drivers or hustlers of any kind. The world can still try to bully you but now you&#8217;re on the right side of the gun and you don&#8217;t take no shit no more".</span>
   </p>
   
   <p class="p1">

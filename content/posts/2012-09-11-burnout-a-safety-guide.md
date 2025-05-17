@@ -20,12 +20,12 @@ tags:
   - way
 
 ---
-## &#8220;Burnout&#8221;
+## "Burnout"
 
 Did you ever hear about that?
 
 According to wikipedia it&#8217;s:  
-<a href="http://en.wikipedia.org/wiki/Burnout_(psychology)" target="_blank">&#8220;the experience of long-term exhaustion and diminished interest&#8221;</a>
+<a href="http://en.wikipedia.org/wiki/Burnout_(psychology)" target="_blank">"the experience of long-term exhaustion and diminished interest"</a>
 
 If you&#8217;re more visual, just picture a fly banging its head on the window for 12 hours.  
 When it ends on its back you can call it a case of burnout.
@@ -92,7 +92,7 @@ Bad goals are typically:
 
 Those type of objectives put you on the treadmill of exhaustion, especially if you have a tendency to overdo yourself.
 
-I dealt with that for around 15 years, this &#8220;Go Big&#8221; mindset fueled me to high accomplishments at first, then I usually collapsed and sometimes totally lost interest in what I was doing.
+I dealt with that for around 15 years, this "Go Big" mindset fueled me to high accomplishments at first, then I usually collapsed and sometimes totally lost interest in what I was doing.
 
 I solve that by chunking up big projects into smaller, reasonable bits.  
 I also define them CLEARLY: it&#8217;s not enough to say that I want a raise next year, I try to define exactly how much and at what date I want that done.
@@ -124,7 +124,7 @@ Since a few years, I train myself to follow my inner clock, to live at a pace th
 
 ### #3 POSTPONING HAPPINESS?        NAH
 
-&#8220;Life is what happens to you while you&#8217;re busy making other plans&#8221;- John Lennon
+"Life is what happens to you while you&#8217;re busy making other plans"- John Lennon
 
 Here&#8217;s another bug affecting the minds of over-achievers: they believe they need to meet their goals in order to be happy, and they don&#8217;t enjoy anything before reaching the finish line.
 

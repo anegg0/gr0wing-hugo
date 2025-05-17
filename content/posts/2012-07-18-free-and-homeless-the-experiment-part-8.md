@@ -82,7 +82,7 @@ When you travel, you usually differentiate two things:
 &#8211; **Your destination**: the place where you want to go  
 &#8211; **The Interzone**: the distance you need to travel to get there (term stolen from William Burroughs)
 
-That&#8217;s your idea of a trip when you&#8217;re sedentary: you&#8217;re either &#8220;traveling&#8221; or you have &#8220;arrived at your destination&#8221;.
+That&#8217;s your idea of a trip when you&#8217;re sedentary: you&#8217;re either "traveling" or you have "arrived at your destination".
 
 Yet, after a few months in planes, buses and trains you can&#8217;t make those distinctions anymore.  Your mind stops labeling places as destinations or stop overs. You can&#8217;t even remember where you are when you wake up.
 

@@ -19,97 +19,97 @@ tags:
 ---
 ## How to be an urban monk #3
 
-I started meditating when I was 22. I didn&#8217;t expect that practice to have such a long term impact.
+I started meditating when I was 22. I didn't expect that practice to have such a long term impact.
 
 I had received my first instructions in 1995 and I would spend 30 minutes a day sitting on my pillow, bringing back my attention to the breath, over and over.
 
-Nothing much would happen, but I enjoyed this daily stretch of nothingness along with the discipline it required. There was little to expect, that&#8217;s why I liked it so much, I guess, especially after being totally high on LSD for several years, I didn&#8217;t mind taking a break from violent mental experiences.
+Nothing much would happen, but I enjoyed this daily stretch of nothingness along with the discipline it required. There was little to expect, that's why I liked it so much, I guess, especially after being totally high on LSD for several years, I didn't mind taking a break from violent mental experiences.
 
-But although meditation had a more subtle effect than psychedelics, it changed pretty much everything in my life, brick by brick. And twenty years later I&#8217;m still in love with it.
+But although meditation had a more subtle effect than psychedelics, it changed pretty much everything in my life, brick by brick. And twenty years later I'm still in love with it.
 
-Since 1995, I&#8217;ve adopted various lifestyles, government worker, Buddhist monk, Marketer, Sales person, unemployed and homeless. 
+Since 1995, I've adopted various lifestyles, government worker, Buddhist monk, Marketer, Sales person, unemployed and homeless. 
 
-I&#8217;m not counting the places, the people, the beliefs…all these aspects changed constantly. The only thing that stayed strong was meditation and its power to realign my tormented mind and pull it out of its confusion. 
+I'm not counting the places, the people, the beliefs…all these aspects changed constantly. The only thing that stayed strong was meditation and its power to realign my tormented mind and pull it out of its confusion. 
 
-I&#8217;ve come to regard meditation as a medicine to so many forms of modern suffering, it&#8217;s gaining more attention now and I feel a lot of nonsense is said, so I&#8217;d like to share my perception of it, since I chanced to have a rather solid education in this field when I was a Monk.
+I've come to regard meditation as a medicine to so many forms of modern suffering, it's gaining more attention now and I feel a lot of nonsense is said, so I'd like to share my perception of it, since I chanced to have a rather solid education in this field when I was a Monk.
 
 This article is not a guide to meditation, but it offers a non-conventional Q & A about it, and I hope it encourages you to investigate more for yourself.
 
-## What does &#8220;Meditation&#8221; mean?
+## What does "Meditation" mean?
 
-Int this article, I&#8217;m mainly referring to the practice of [Samata][1] which consists in sitting cross legged (or on a chair) with a straight back and placing your attention on a fixed object, like a picture, or on the breath.
+Int this article, I'm mainly referring to the practice of [Samata][1] which consists in sitting cross legged (or on a chair) with a straight back and placing your attention on a fixed object, like a picture, or on the breath.
 
-This practice is also known a mindfulness meditation, Shine or Vipassana, it&#8217;s a mind training which is a first step to more elaborate forms of meditation.
+This practice is also known a mindfulness meditation, Shine or Vipassana, it's a mind training which is a first step to more elaborate forms of meditation.
 
 ## Do I need to adhere to a specific religious belief to practice meditation?
 
-No, there&#8217;s no need to be a believer, although meditation is a vital component of spiritual traditions such as Buddhism.  
-&#8220;Mindfulness meditation&#8221; existed prior to most known religions (including Buddhism), there&#8217;s no real way to trace its historical origin or to claim ownership on it.
+No, there's no need to be a believer, although meditation is a vital component of spiritual traditions such as Buddhism.  
+"Mindfulness meditation" existed prior to most known religions (including Buddhism), there's no real way to trace its historical origin or to claim ownership on it.
 
 ## Can I learn meditation with the sole objective to improve my mental performance?
 
-You can do that, and it&#8217;ll probably work, but it&#8217;d be a waste. Think of how pathetic it would be to try to fall in love in hope of losing weight.
+You can do that, and it'll probably work, but it'd be a waste. Think of how pathetic it would be to try to fall in love in hope of losing weight.
 
-Meditation has a very broad effect on one&#8217;s life, it doesn&#8217;t only enhance your capacity to focus, it also develops empathy and the understanding of your body and mind. That means, it&#8217;s very likely to make you a better person, as long as you don&#8217;t consider it like a selfish workout.
+Meditation has a very broad effect on one's life, it doesn't only enhance your capacity to focus, it also develops empathy and the understanding of your body and mind. That means, it's very likely to make you a better person, as long as you don't consider it like a selfish workout.
 
 ## Can I learn it on my own?
 
-I wouldn&#8217;t recommend it, since meditation has no equivalent, you might quickly get lost in the process and there are dangers associated to that.
+I wouldn't recommend it, since meditation has no equivalent, you might quickly get lost in the process and there are dangers associated to that.
 
 The safe way is to rely on organizations offering qualified meditation trainings:
 
   * Your local Buddhist group (google it)
   * A Mindfulness meditation group around your area
-  * A Vipassana center or retreat center if you&#8217;re lucky
+  * A Vipassana center or retreat center if you're lucky
 
 ## What books could I start with?
 
-&#8220;[Zen Mind, Beginner&#8217;s Mind][2]&#8221; by Suzuki Roshi or &#8220;[The Power of Now][2]&#8221; by Eckahrt Tolle, or &#8220;[Mindfulness Meditations in Everyday Life and Exercises & Meditations][3]&#8221; by John Kabat-Zinn are a good place to start from (these links are affiliated).
+"[Zen Mind, Beginner's Mind][2]" by Suzuki Roshi or "[The Power of Now][2]" by Eckahrt Tolle, or "[Mindfulness Meditations in Everyday Life and Exercises & Meditations][3]" by John Kabat-Zinn are a good place to start from (these links are affiliated).
 
 ## Can I practice it on my own?
 
-Yes, and you&#8217;ll probably have to if you wish to make it a daily practice.
+Yes, and you'll probably have to if you wish to make it a daily practice.
 
 ## Does it feel good?
 
-Not always, expect bumps on the way, emotional distress and feelings of extreme confusion can occur (I invite you to read this [very good article][4] for more information). In the long haul though, there&#8217;s no question that you&#8217;ll gain a tremendous amount of stability and fulfillment.
+Not always, expect bumps on the way, emotional distress and feelings of extreme confusion can occur (I invite you to read this [very good article][4] for more information). In the long haul though, there's no question that you'll gain a tremendous amount of stability and fulfillment.
 
 ## Can I combine it with something else?
 
-You might mix meditation with your current practice, or with anything else, but for a start it&#8217;s much safer to practice it on its own.
+You might mix meditation with your current practice, or with anything else, but for a start it's much safer to practice it on its own.
 
-Many wild experiments are being tried with meditation these days, some even do drugs while meditating, it&#8217;s not recommended at all by qualified teachers.
+Many wild experiments are being tried with meditation these days, some even do drugs while meditating, it's not recommended at all by qualified teachers.
 
 ## Can I meditate following my inspiration, or using visualizations I created?
 
 You can totally do that, but your practice will fall into another category than the meditation described in this article, and the results are uncertain.
 
-The main risk with improvising one&#8217;s own meditation is that nobody&#8217;s going to be able to guide you through it. It&#8217;s likely to end up in a lamentable fiasco.
+The main risk with improvising one's own meditation is that nobody's going to be able to guide you through it. It's likely to end up in a lamentable fiasco.
 
 ## Where can I find a good meditation instructor?
 
-There&#8217;s no simple answer to this question, I wrote a <a href="http://www.gr0wing.com/how-to-choose-a-spiritual-master/" target="_blank">post about that</a> earlier. I recommend relying on organizations that have a safe reputation and picking a teacher with whom you feel comfortable.
+There's no simple answer to this question, I wrote a <a href="http://www.gr0wing.com/how-to-choose-a-spiritual-master/" target="_blank">post about that</a> earlier. I recommend relying on organizations that have a safe reputation and picking a teacher with whom you feel comfortable.
 
-There are many self-claimed meditation masters that are dangerous individuals (Gurus, in other words). If you find an &#8220;accomplished spiritual master&#8221; online, try to investigate on them, ideally you want to find information in other places than in their own websites :) 
+There are many self-claimed meditation masters that are dangerous individuals (Gurus, in other words). If you find an "accomplished spiritual master" online, try to investigate on them, ideally you want to find information in other places than in their own websites :) 
 
 ## Are there levels of mastery in meditation, like belts for Karate?
 
-There are levels of achievement in that area, but no official curriculum or reward. It doesn&#8217;t make sense to establish a competition driven environment for meditation since the goal of that kind of practice is also to eradicate neurotic emotions such as the will to beat others.
+There are levels of achievement in that area, but no official curriculum or reward. It doesn't make sense to establish a competition driven environment for meditation since the goal of that kind of practice is also to eradicate neurotic emotions such as the will to beat others.
 
 ## If I start meditating, will I turn into a spaced-out New-Age weirdo?
 
-You&#8217;re free to wear white linen pants and leather sandals while smiling obsessively to everyone crossing your way, but that&#8217;s not the usual result of meditation.
+You're free to wear white linen pants and leather sandals while smiling obsessively to everyone crossing your way, but that's not the usual result of meditation.
 
 Meditation tends to make you emotionally stable and strong. These qualities are generally noticed by the people around you, resulting in being more trusted (and often more solicited for help…)
 
-## If meditation is so cool, how come it&#8217;s not embedded in our modern lifestyle?
+## If meditation is so cool, how come it's not embedded in our modern lifestyle?
 
 There are two reasons for that:
 
-  * Meditation is free, and nobody will promote something that doesn&#8217;t sell anything (it even tends to make people happier, which in turn decreases their need to shop).
-  * Meditation comes from a very different perspective that the traditional western view. It took a while for it to be considered by westerners, it&#8217;ll take longer to gain mainstream media&#8217;s attention.
+  * Meditation is free, and nobody will promote something that doesn't sell anything (it even tends to make people happier, which in turn decreases their need to shop).
+  * Meditation comes from a very different perspective that the traditional western view. It took a while for it to be considered by westerners, it'll take longer to gain mainstream media's attention.
 
-That was a simple overview, but I&#8217;ll make sure to answer any questions in the comment section below&#8230;as long as I feel qualified :)
+That was a simple overview, but I'll make sure to answer any questions in the comment section below&#8230;as long as I feel qualified :)
 
 If you found this Q&A interesting feel free to <a href="http://eepurl.com/zxyeT" target="_blank">subscribe to the weekly Fertilizer</a>
 

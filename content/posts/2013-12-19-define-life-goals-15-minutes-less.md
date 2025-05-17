@@ -19,7 +19,7 @@ In my apartment, the fridge was only a few steps away from the couch, but it fee
 
 Living without a purpose seems comfortable at first sight, but in the long run it feeds a crippling form of depression and anxiety.
 
-Not only that, but it limits your life to a &#8220;default template&#8221;, a shallow and repetitive movie featuring your own boredom, your secret fears and your lack of generosity.
+Not only that, but it limits your life to a "default template", a shallow and repetitive movie featuring your own boredom, your secret fears and your lack of generosity.
 
 On the other hand, if you define a direction for yourself, no matter how unconventional, the perks are limitless, let me name a few:
 
@@ -29,7 +29,7 @@ On the other hand, if you define a direction for yourself, no matter how unconve
   4. Simplicity: <a href="http://sethgodin.typepad.com/seths_blog/2013/12/a-productivity-gap.html" target="_blank">no need for complex productivity tools</a> when you&#8217;ve found your dope
   5. Communicating clearly about your projects and making your ideals viral
 
-That mindset allowed me to learn Tibetan and become interpreter in 4 years, graduating at university from home and land a permanent sales job in the IT with a Resume that read &#8220;spent the last ten years as a Buddhist monk&#8221;, I&#8217;m confident this approach will work for you too.
+That mindset allowed me to learn Tibetan and become interpreter in 4 years, graduating at university from home and land a permanent sales job in the IT with a Resume that read "spent the last ten years as a Buddhist monk", I&#8217;m confident this approach will work for you too.
 
 If you&#8217;re interested, try it for yourself:
 
@@ -86,7 +86,7 @@ Review your list of dreams in hand,  and determine for each of them:
 
   * The steps you&#8217;re willing to make to get there &#8211; changing career means investigating online about your potential dream job, then confronting it with what skills you&#8217;ll need to train.
   * The daily habits you&#8217;re going to implement &#8211; becoming a writer means writing half an hour everyday minimum.
-  * The timeframe for each goal with a clear and measurable result: &#8220;I want to publish my first successful novel in five years&#8221;.
+  * The timeframe for each goal with a clear and measurable result: "I want to publish my first successful novel in five years".
 
 I recommend you <a href="http://www.stevepavlina.com/blog/2012/11/5-year-commitments/" target="_blank">five years to finalize any project</a>, it&#8217;s a reasonable timeframe for anything meaningful.
 

@@ -57,10 +57,10 @@ As I grew older, I understood the preciousness of time. There is not much time l
 
 Be honest to yourself first.
 
-Is this the guy I want, or am I only holding on to the &#8220;idea&#8221; of having a relationship because I don&#8217;t want to feel lonely?
+Is this the guy I want, or am I only holding on to the "idea" of having a relationship because I don&#8217;t want to feel lonely?
 
-Long distance relationships are great intimacy &#8216;camouflagers&#8217;. You can keep the illusion of being with someone, while at the same time not really having anything meaningful at all. Just the feeling of relief while telling your friends &#8220;I have a boyfriend&#8221;.  
-Lots of us tend to &#8220;stick it up&#8221; because we think it is better to be WITH someone, even if it&#8217;s half-assed; than to face loneliness or the pressure of not having someone special in your life. To me, I had thrown that conditioning out the window, way long before that. I was ready to ask myself those hard questions.
+Long distance relationships are great intimacy &#8216;camouflagers&#8217;. You can keep the illusion of being with someone, while at the same time not really having anything meaningful at all. Just the feeling of relief while telling your friends "I have a boyfriend".  
+Lots of us tend to "stick it up" because we think it is better to be WITH someone, even if it&#8217;s half-assed; than to face loneliness or the pressure of not having someone special in your life. To me, I had thrown that conditioning out the window, way long before that. I was ready to ask myself those hard questions.
 
 ## 3-Don&#8217;t be afraid to ask what you want in a relationship &#8211; Kindly
 

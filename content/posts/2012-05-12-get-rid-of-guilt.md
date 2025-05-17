@@ -31,7 +31,7 @@ In the long run, it blocks your own growth.
 
 I&#8217;m not a big advocate of guilt, as you can see, having suffered a lot from it, I collected methods to eradicate that mental process.
 
-This article gives clues on how to sabotage guilt. I didn&#8217;t title it &#8220;how to destroy guilt&#8221; or &#8220;how to nuke guilt&#8221; because it&#8217;s not the way to proceed. Guilt can be removed but you have to be patient. Taming guilt is one of the most rewarding things you can do for yourself though, so I hope the following helps you.
+This article gives clues on how to sabotage guilt. I didn&#8217;t title it "how to destroy guilt" or "how to nuke guilt" because it&#8217;s not the way to proceed. Guilt can be removed but you have to be patient. Taming guilt is one of the most rewarding things you can do for yourself though, so I hope the following helps you.
 
 <!--more-->
 
@@ -67,12 +67,12 @@ The best approach is to help someone or take exercise.
 
 There is this common belief that guilt will wash your sins.  
 Guilt doesn&#8217;t wash anything, it screws you up.  
-Be very clear on the fact that guilt doesn&#8217;t help the persons you have harmed. At all. It doesn&#8217;t &#8220;purify&#8221; you of anything either.  
+Be very clear on the fact that guilt doesn&#8217;t help the persons you have harmed. At all. It doesn&#8217;t "purify" you of anything either.  
 Guilt is simply a faulty process in your mind, it makes you extremely weak. If you want to pay back for what you did, then you need to recover from guilt first, become strong again and contribute by helping around you.
 
 ### Momentum
 
-You can&#8217;t &#8220;stop guilt&#8221;, since it&#8217;s a powerful motion, but you can stop feeding it and watch it die out. Patience is required. The trick is not to interact with guilt. Just quarantine this process in your mind, while remaining aware of it.  
+You can&#8217;t "stop guilt", since it&#8217;s a powerful motion, but you can stop feeding it and watch it die out. Patience is required. The trick is not to interact with guilt. Just quarantine this process in your mind, while remaining aware of it.  
 **Time will suffocate guilt slowly. You can trust time, it won&#8217;t fail you, just be patient.**
 
 ### Social Hygiene

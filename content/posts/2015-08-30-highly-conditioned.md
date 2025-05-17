@@ -27,7 +27,7 @@ I don’t have any easy answer to this, all the more as I suffered many years fr
 
 Still, I have a personal theory I&#8217;d like to share: stress and depression are not merely caused by personal issues. They&#8217;re also symptomatic of a general problem, at the scale of a society.</br>
 
-Take the French like me: I grew up in a culture where having fun is somewhat considered a symptom of mental retardation. In French, you often call an idiot: &#8220;imbécile heureux&#8221; or &#8220;happy moron&#8221; (litteral translation). That speaks volumes on how we value happiness.</br>  
+Take the French like me: I grew up in a culture where having fun is somewhat considered a symptom of mental retardation. In French, you often call an idiot: "imbécile heureux" or "happy moron" (litteral translation). That speaks volumes on how we value happiness.</br>  
 What kind of person would you have become growing up in a country that equates fun with a low IQ? Chances are you would have made it a point to be unhappy, or at least pretended so in order to blend in.</br>
 
 Americans seem to be a different type, to Europeans, they look tense, paranoid and incredibly goal-oriented, their obsession toward success is easy to make fun of from a French perspective. But once again, it’s only a matter of conditioning.  

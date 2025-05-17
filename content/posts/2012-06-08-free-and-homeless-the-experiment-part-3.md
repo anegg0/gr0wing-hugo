@@ -89,7 +89,7 @@ They say they don&#8217;t know if he&#8217;s going to make it.
 He&#8217;s in a cold, isolated room. I don&#8217;t recognize the man I first met, he&#8217;s more of&nbsp;a tweaking bug now, drowning in tubes and high tech medical devices.
 
 His eyes are open, they don&#8217;t blink, they just contract, that gives him a scary expressoin. I&#8217;m thinking:  
-**&#8220;Where the hell is his conscience right now?&#8221;**  
+**"Where the hell is his conscience right now?"**  
 I speak a few words, the only answers come from the drones of vital signs monitors around him. It&#8217;s not a conversation I&#8217;m having with him, anyway, more with myself.  
 What do I feel, that close to someone that&#8217;s about to leave?  
 I&#8217;m not so scared, maybe because I&#8217;m not the one that&#8217;s going to die.
@@ -108,7 +108,7 @@ Screw it.
 I totally flake out of surfing :)
 
 The next days I enjoy the beach, the sea, a hammock&#8230;  
-That&#8217;s awesome, even at night. Sometimes waves are fluorescent because of the &#8220;Red Tide&#8221; (an accumulation of plancton in the ocean). A hypnotic thing to watch.
+That&#8217;s awesome, even at night. Sometimes waves are fluorescent because of the "Red Tide" (an accumulation of plancton in the ocean). A hypnotic thing to watch.
 
 <div id="attachment_2405" style="width: 460px" class="wp-caption aligncenter">
   <a href="http://www.gr0wing.com/free-and-homeless-the-experiment-part-3"><img aria-describedby="caption-attachment-2405" class="size-full wp-image-2405" title="Red Tide" src="http://www.gr0wing.com/wp-content/uploads/2012/06/red-tide.jpg" alt="" width="450" height="161" srcset="https://www.gr0wing.com/wp-content/uploads/2012/06/red-tide.jpg 450w, https://www.gr0wing.com/wp-content/uploads/2012/06/red-tide-300x107.jpg 300w" sizes="(max-width: 450px) 100vw, 450px" /></a>
@@ -138,8 +138,8 @@ And they won&#8217;t speak.
   </p>
 </div>
 
-&#8220;I love your project to leave you day job and travel the world, but you&#8217;re not a student anymore, so  
-**how do you make it financially?**&#8221;
+"I love your project to leave you day job and travel the world, but you&#8217;re not a student anymore, so  
+**how do you make it financially?**"
 
 That&#8217;s what a lot of people tell me.
 

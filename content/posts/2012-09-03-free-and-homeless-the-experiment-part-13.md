@@ -14,26 +14,26 @@ categories:
 
 ---
 <p style="background-color: silver;">
-  I&#8217;ve arrived in New York.<br /> This city doesn&#8217;t care about me.
+  I've arrived in New York.<br /> This city doesn't care about me.
 </p>
 
-It&#8217;s 10 PM.
+It's 10 PM.
 
 The night has swallowed the only naturally occurring thing in New York: sunlight.
 
-Raging traffic, people walking everywhere. I don&#8217;t even exist here, my presence is insignificant, like a bug&#8217;s fart.<!--more-->
+Raging traffic, people walking everywhere. I don't even exist here, my presence is insignificant, like a bug's fart.<!--more-->
 
 &nbsp;
 
-I could stay in the airport&#8217;s hall for a week, nobody would pay attention.
+I could stay in the airport's hall for a week, nobody would pay attention.
 
 I could lie on the ground and die right before the entrance, nobody would care as much as their next business meeting.
 
 The airport has probably a team dedicated to people dying in the main hall, so I guess they would come pick me up, and that would be it.
 
-While there&#8217;s something cold and totally impersonal in airports, I like that feeling of anonymity.
+While there's something cold and totally impersonal in airports, I like that feeling of anonymity.
 
-New York has plenty of anonymity. So much anonymity that it&#8217;s easy to drown in it.
+New York has plenty of anonymity. So much anonymity that it's easy to drown in it.
 
 &nbsp;
 
@@ -41,7 +41,7 @@ New York has plenty of anonymity. So much anonymity that it&#8217;s easy to dro
 
 &nbsp;
 
-After two months in Latin America, I&#8217;ve has plenty of time to go unnoticed, so I&#8217;m glad to leave the airport and be welcomed by my girlfriend, at her apartment in Queens.
+After two months in Latin America, I've has plenty of time to go unnoticed, so I'm glad to leave the airport and be welcomed by my girlfriend, at her apartment in Queens.
 
 &nbsp;
 

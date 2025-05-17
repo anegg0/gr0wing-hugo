@@ -21,7 +21,7 @@ Didn&#8217;t you identify with a super hero when you were a kid?
 
 I know I did, children often use imaginary role models to build their personality, yet now that we&#8217;re adults, do we still need that kind of substitutes?
 
-Like for instance, did you hear about the notion of &#8220;Higher Self&#8221;?  
+Like for instance, did you hear about the notion of "Higher Self"?  
 I&#8217;m referring to the term as used in self-help literature.
 
 Think of the higher self as a fully blossomed version of you. It&#8217;s who you should become in order to accomplish your mission on earth, a perfected version of you, after years of improvement.
@@ -41,7 +41,7 @@ I wrote this article to show:
 
 &nbsp;
 
-Your higher self is who you&#8217;re supposed to become once you&#8217;ve fully developed your potential. It&#8217;s the ultimate achievement of all your personal goals. Anything you&#8217;re trying to improve eventually sums up as this &#8220;greater you&#8221;.
+Your higher self is who you&#8217;re supposed to become once you&#8217;ve fully developed your potential. It&#8217;s the ultimate achievement of all your personal goals. Anything you&#8217;re trying to improve eventually sums up as this "greater you".
 
 To put that chronologically: one day, once you&#8217;ve worked your tail off on your social, professional and spiritual skills, the reward will manifest as a blissful fusioning with your higher self.
 
@@ -51,11 +51,11 @@ That&#8217;ll be amazingly great and epic!
 
 Well, sorry to ruin the show but there&#8217;s something wrong in this picture:
 
-Why should this &#8220;new you&#8221; be better than who you currently are?
+Why should this "new you" be better than who you currently are?
 
 Aren&#8217;t you already good enough?
 
-My point is not to challenge the notion that we should evolve, I&#8217;m a big believer in personal-growth, but my experience has taught me that some strategies can quickly become totally neurotic. This &#8220;higher self&#8221; thing belongs to this category, here&#8217;s why:
+My point is not to challenge the notion that we should evolve, I&#8217;m a big believer in personal-growth, but my experience has taught me that some strategies can quickly become totally neurotic. This "higher self" thing belongs to this category, here&#8217;s why:
 
   * **A Higher Self is simply an ideal, by definition ideals can never be reached  
 ** The idea of a higher self functions like a mirage: the closer you get, the further it goes. There&#8217;s no attaining your higher self.**  
@@ -76,7 +76,7 @@ For those curious of a more serious growth strategies, though, please read on:
 
 # What to do instead?
 
-As said above, the &#8220;Higher self&#8221; concept fails to be a useful transformation tool since it creates an arbitrary gap between yourself and your goal.
+As said above, the "Higher self" concept fails to be a useful transformation tool since it creates an arbitrary gap between yourself and your goal.
 
 It doesn&#8217;t promote self-acceptance either.
 
@@ -100,7 +100,7 @@ I bet people keep praising you for the same things over and over again. Did you 
 
 You should, because they&#8217;re probably right (your mom&#8217;s opinion also counts, no matter how biased it might be).
 
-The trick, here, is to really understand that you might think your qualities are &#8220;normal&#8221; or granted, but they&#8217;re not.
+The trick, here, is to really understand that you might think your qualities are "normal" or granted, but they&#8217;re not.
 
 I know a lot of people who are great at repairing things. They under-appreciate that because they simply  like to fix that washing machine and they consider that there&#8217;s no merit in being good at something you like.
 
@@ -108,7 +108,7 @@ Other people have a great touch with animals. To them, there&#8217;s nothing spe
 
 Wrong. Ask a regular person to pet a cat they don&#8217;t know.
 
-You should take a piece of paper and write down 10 things people always praise you for. Then you should wonder: &#8220;does everybody have these skills?&#8221;
+You should take a piece of paper and write down 10 things people always praise you for. Then you should wonder: "does everybody have these skills?"
 
 Probably not.
 
@@ -118,7 +118,7 @@ Even if you think you have no merit being endowed with specific know-hows becaus
 
 ##  Hug your imperfection
 
-From the ultimate perspective, you are perfect. That&#8217;s what the &#8220;Higher Self&#8221; refers to in Hinduism.
+From the ultimate perspective, you are perfect. That&#8217;s what the "Higher Self" refers to in Hinduism.
 
 From the daily point of view though, you&#8217;re not, and that&#8217;s OK. In fact, it mostly depends how you look at it.
 
@@ -147,7 +147,7 @@ I used to be skinny in the bad sense: skinny like&#8230;really skinny.
 
 My metabolism makes me lose weight for any reason. It&#8217;s absurd but it&#8217;s like that.
 
-I&#8217;ve been called a locust, a skeleton, my karate teacher even told me that I looked like a &#8220;stick insect&#8221;.
+I&#8217;ve been called a locust, a skeleton, my karate teacher even told me that I looked like a "stick insect".
 
 A stick insect&#8230;You have to know what it looks like.
 
@@ -171,8 +171,8 @@ It&#8217;s a paradox but often, when you  get a positive outlook on yourself an
 
 Does reality always give you more of what you focus on?
 
-Is that what they call &#8220;the Law of Attraction&#8221;?
+Is that what they call "the Law of Attraction"?
 
 I&#8217;m not a specialist but it looks like that. What about you?
 
-Did you decide to become the &#8220;greater you&#8221; of just the best of yourself? :)
+Did you decide to become the "greater you" of just the best of yourself? :)

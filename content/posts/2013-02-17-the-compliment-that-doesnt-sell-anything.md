@@ -20,7 +20,7 @@ tags:
 
 &nbsp;
 
-They pretend to be your friend, but all they&#8217;re trying to do is make you sign a 12 months payment plan for a barbecue set.
+They pretend to be your friend, but all they're trying to do is make you sign a 12 months payment plan for a barbecue set.
 
 <p style="text-align: center;">
   <img class="aligncenter  wp-image-4718" alt="barbecue set" src="http://www.gr0wing.com/wp-content/uploads/2013/02/barbecue-set.jpg" width="150" height="150" srcset="https://www.gr0wing.com/wp-content/uploads/2013/02/barbecue-set.jpg 250w, https://www.gr0wing.com/wp-content/uploads/2013/02/barbecue-set-150x150.jpg 150w" sizes="(max-width: 150px) 100vw, 150px" />
@@ -30,17 +30,17 @@ They pretend to be your friend, but all they&#8217;re trying to do is make you s
   <!--more-->
 </p>
 
-You know it, a sales person&#8217;s friendship is no friendship, it smells weird the moment they enter the room.
+You know it, a sales person's friendship is no friendship, it smells weird the moment they enter the room.
 
 Everything down to their body language is a disposable sales pitch.
 
-They would do and say whatever you want to hear: the only thing at stake is the goddamn barbecue set they&#8217;re trying to make you sign for.
+They would do and say whatever you want to hear: the only thing at stake is the goddamn barbecue set they're trying to make you sign for.
 
 <img class="aligncenter size-full wp-image-4723" alt="barbecue set-on-sale" src="http://www.gr0wing.com/wp-content/uploads/2013/02/barbecue-set-on-sale.jpg" width="250" height="181" /> 
 
 &nbsp;
 
-I guess I&#8217;m only saying this because as I grow older, I value more the art of saying and doing nice things **for free**, with less expectations.
+I guess I'm only saying this because as I grow older, I value more the art of saying and doing nice things **for free**, with less expectations.
 
 &nbsp;
 
@@ -52,11 +52,11 @@ Few bother complimenting and encouraging others, yet if you start making it a da
 
 &nbsp;
 
-I didn&#8217;t say it was easy to do, making compliment is touchy, but I think <span style="font-size: 16px;">every single human is hungry for acknowledgment and praise, even if they pretend not to care.</span>
+I didn't say it was easy to do, making compliment is touchy, but I think <span style="font-size: 16px;">every single human is hungry for acknowledgment and praise, even if they pretend not to care.</span>
 
-Few people bother giving that kind of attention, though, I&#8217;m not sure why.
+Few people bother giving that kind of attention, though, I'm not sure why.
 
-Maybe they&#8217;re just held off by anxiety (I know I am, very often)?
+Maybe they're just held off by anxiety (I know I am, very often)?
 
 &nbsp;
 
@@ -78,27 +78,27 @@ After all, what if the person you compliment is a <span style="font-size: 18px;"
 
 <img class="wp-image-4728 alignleft" alt="pied-piper-of-Hamelin" src="http://www.gr0wing.com/wp-content/uploads/2013/02/pied-piper-of-Hamelin.jpg" width="250" height="312" srcset="https://www.gr0wing.com/wp-content/uploads/2013/02/pied-piper-of-Hamelin.jpg 320w, https://www.gr0wing.com/wp-content/uploads/2013/02/pied-piper-of-Hamelin-240x300.jpg 240w" sizes="(max-width: 250px) 100vw, 250px" /> What if complimenting makes you suspicious of taking advantage of people?
 
-What if people believe that you&#8217;re just about to <span style="font-size: 18px;">ask them for money?</span>
+What if people believe that you're just about to <span style="font-size: 18px;">ask them for money?</span>
 
-Or that you&#8217;re just a **maniac that has a shrine where he hangs pictures of girls next to bottles of old people&#8217;s saliva?**
-
-&nbsp;
-
-It&#8217;s legitimate to fear the worst rejection scenarios when you decide to open up and say something nice, but in reality, there&#8217;s nothing much to lose: <span style="font-size: 18px;">most people love it when someone cares enough to notice their qualities and mention them.</span>
-
-And those who might reject you are so self-centered that they&#8217;ll forget whatever you told them 5 mn after you said it.
+Or that you're just a **maniac that has a shrine where he hangs pictures of girls next to bottles of old people's saliva?**
 
 &nbsp;
 
-I have nothing to sell through this article, just let me share what I&#8217;ve been trying to do for a few years:
+It's legitimate to fear the worst rejection scenarios when you decide to open up and say something nice, but in reality, there's nothing much to lose: <span style="font-size: 18px;">most people love it when someone cares enough to notice their qualities and mention them.</span>
 
-<span style="font-size: 16px;">I&#8217;ve been trying to compliment people more often, whether young or old, good-looking or not, smart or dumb, whoever they are, I always find something real to say.</span>
-
-<span style="font-size: 16px;">Nobody&#8217;s crappy enough to only have shortcomings, right?<br /> </span>
+And those who might reject you are so self-centered that they'll forget whatever you told them 5 mn after you said it.
 
 &nbsp;
 
-<span style="font-size: 18px;">Now I&#8217;m sure that this strategy works: as long as you&#8217;re not trying to sell anything, people are happy when you identify their qualities, like the way they sing or the shape of their signature.</span>
+I have nothing to sell through this article, just let me share what I've been trying to do for a few years:
+
+<span style="font-size: 16px;">I've been trying to compliment people more often, whether young or old, good-looking or not, smart or dumb, whoever they are, I always find something real to say.</span>
+
+<span style="font-size: 16px;">Nobody's crappy enough to only have shortcomings, right?<br /> </span>
+
+&nbsp;
+
+<span style="font-size: 18px;">Now I'm sure that this strategy works: as long as you're not trying to sell anything, people are happy when you identify their qualities, like the way they sing or the shape of their signature.</span>
 
 &nbsp;
 
@@ -116,7 +116,7 @@ I have nothing to sell through this article, just let me share what I&#8217;ve b
 
 &nbsp;
 
-The world is a tough place. If you open the fire first by mentioning people&#8217;s bright side, you&#8217;ll get a rewarding feedback, <span style="font-size: 16px;">simply because a sincere compliment can go a long way in someone&#8217;s mind, it can even change a destiny, sometimes.</span>
+The world is a tough place. If you open the fire first by mentioning people's bright side, you'll get a rewarding feedback, <span style="font-size: 16px;">simply because a sincere compliment can go a long way in someone's mind, it can even change a destiny, sometimes.</span>
 
 And it costs nothing. Just a tiny bit of care and attention.
 
@@ -124,6 +124,6 @@ And it costs nothing. Just a tiny bit of care and attention.
 
 &nbsp;
 
-If you&#8217;d like more of that kind of posts, you should <a href="http://www.facebook.com/GrowingTheRootsOfHappiness?ref=hl" target="_blank">like this blog</a> :)
+If you'd like more of that kind of posts, you should <a href="http://www.facebook.com/GrowingTheRootsOfHappiness?ref=hl" target="_blank">like this blog</a> :)
 
 &nbsp;

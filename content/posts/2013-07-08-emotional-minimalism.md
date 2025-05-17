@@ -29,7 +29,7 @@ tags:
 Yesterday I had a panic attack after discovering a succesful website that attracts thousands of followers. The guy behind this blog crafts well-written, insightful articles. Everybody loves what he does and he does it much better than me, that&#8217;s for sure.
 
 While I was browsing his statistics I kept comparing the size of my blog versus his (sounds pathetic?).  
-I was simply curious at first, then increasingly jealous. As it turns out, the bottom line of my investigation was pretty straightforward: &#8220;his audience is huge, and mine very small&#8221;.
+I was simply curious at first, then increasingly jealous. As it turns out, the bottom line of my investigation was pretty straightforward: "his audience is huge, and mine very small".
 
 No guy wants to come to that kind of conclusion, in any context&#8230; I&#8217;m sure my male readers will understand that feeling,  (others might be appalled by my lack of maturity, that&#8217;s OK).
 
@@ -37,7 +37,7 @@ My self-esteem is easily damaged, it still collapses for no reason. Here, seeing
 
 But I&#8217;m getting old and I no longer have the desire to beat myself up, every form of depression and masochism loses its appeal after a certain age, so I decided to shift perspective.
 
-In the end, here&#8217;s how I chose to approach the situation: &#8220;Yes, his blog is better than mine, but isn&#8217;t it an opportunity to learn from him?&#8221;. Sure, I could have remained in the self-hatred mode, but I picked a more positive outlook since it opened doors to creativity, instead of shutting them down.
+In the end, here&#8217;s how I chose to approach the situation: "Yes, his blog is better than mine, but isn&#8217;t it an opportunity to learn from him?". Sure, I could have remained in the self-hatred mode, but I picked a more positive outlook since it opened doors to creativity, instead of shutting them down.
 
 Since 10 years, I&#8217;ve been busy cutting down on stress, Anger, Jealousy and self-criticism. That mental decluttering  process or **Emotional Minimalism** liberated lots of energy in my life, some of the surplus goes into this blog, actually.
 
@@ -81,9 +81,9 @@ There&#8217;s really no need to be loyal to your emotions, they&#8217;ve been fe
 
 I&#8217;m wondering what would be my first thought If I woke up in a dungeon, with my feet and hands tied to a sweating wall, contemplating a hip of corpses soaking in their decomposition fluids.
 
-&#8220;I&#8217;m screwed&#8221;, would be my main focus, I guess.
+"I&#8217;m screwed", would be my main focus, I guess.
 
-Yet, there&#8217;s been reports of vietnam vets captured in the very same conditions, and at least one of them became famous for not giving in to ultimate depression. Locked in a 10 sq/ft cell for seven years his main focus was : _&#8220;How can I use this situation?&#8221;_
+Yet, there&#8217;s been reports of vietnam vets captured in the very same conditions, and at least one of them became famous for not giving in to ultimate depression. Locked in a 10 sq/ft cell for seven years his main focus was : _"How can I use this situation?"_
 
 The guy&#8217;s said to have not only survived, but grown through this approach by recalling every single days of his life, analyzing how he screwed up and how he could improve next time.
 
@@ -92,11 +92,11 @@ Some extermination camp survivors came back with the same testimonials: (<a href
 
 Now at this point, you&#8217;re free to call BS on all those stories. I have no problem with that. But I personally believe them as they comply with my own experience. I&#8217;ve successfully shifted my mindset from total anxiety to enjoyment many times just by asking myself the right questions, and I did that in situations that I don&#8217;t wish to anyone.
 
-**&#8220;I&#8217;ve been fired, <span style="text-decoration: underline;">how can I grow from that?&#8221;</span>**
+**"I&#8217;ve been fired, <span style="text-decoration: underline;">how can I grow from that?"</span>**
 
-**&#8220;My application has been turned down, <span style="text-decoration: underline;">what can I learn from that?&#8221;</span>**
+**"My application has been turned down, <span style="text-decoration: underline;">what can I learn from that?"</span>**
 
-**&#8220;She says I&#8217;m useless in bed, OK, but <span style="text-decoration: underline;">what can I make out of that?&#8221;</span>**
+**"She says I&#8217;m useless in bed, OK, but <span style="text-decoration: underline;">what can I make out of that?"</span>**
 
 Emotions feed on thoughts, thoughts are initiated by questions. That&#8217;s why asking the right questions is so crucial, it determines the thought-path your mind uses.
 
@@ -112,7 +112,7 @@ You were probably well on your way to Emotional Minimalism before you started re
 
 BTW: the cool blog I mentioned above is: <a href="http://www.raptitude.com" target="_blank">http://www.raptitude.com</a>
 
-<a href="http://eepurl.com/zxyeT" target="_blank">Subscribe to gr0wing.com&#8217;s &#8220;Fertilizer&#8221;</a> and receive insanely cool personal development insights every week!
+<a href="http://eepurl.com/zxyeT" target="_blank">Subscribe to gr0wing.com&#8217;s "Fertilizer"</a> and receive insanely cool personal development insights every week!
 
 &nbsp;
 

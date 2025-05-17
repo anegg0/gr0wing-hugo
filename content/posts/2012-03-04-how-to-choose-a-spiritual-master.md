@@ -13,7 +13,7 @@ categories:
   - Urban Monk Buddhism
 
 ---
-<cite>&#8220;No man is so foolish but he may sometimes give another good counsel, and no man so wise that he may not easily err if he takes no other counsel than his own. He that is taught only by himself has a fool for a master.&#8221;</cite> &#8211; Hunter S. Thompson
+<cite>"No man is so foolish but he may sometimes give another good counsel, and no man so wise that he may not easily err if he takes no other counsel than his own. He that is taught only by himself has a fool for a master."</cite> &#8211; Hunter S. Thompson
 
 I spent quite a few years following various spiritual guides. Some of them totally inspired and helped me, but I can certainly say that a few others were the worst type of douche bags I&#8217;ve ever met.
 

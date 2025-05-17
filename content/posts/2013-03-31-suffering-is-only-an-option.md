@@ -39,7 +39,7 @@ What was I going to tell my friends?
 More importantly, what was I going to tell myself?  
 Talking about a self-esteem issue&#8230;
 
-It was time to draw conclusions from this failure,  and I had to do it before my mind settled for a negative belief (&#8220;I&#8217;m crap&#8221; being one of them).
+It was time to draw conclusions from this failure,  and I had to do it before my mind settled for a negative belief ("I&#8217;m crap" being one of them).
 
 There was an unlimited supply of justifications available to me, things like:
 
@@ -69,7 +69,7 @@ What mindset would you need to adopt to get out of pain and respond positively t
 
 Or, as Tony Robbins often says:
 
-&#8220;**What would you have to believe to make something work?**&#8221;
+"**What would you have to believe to make something work?**"
 
 And what belief  can help you support people around you? Of course, you can try to hold on to painful certainties that seem true to you, but please remember that:
 

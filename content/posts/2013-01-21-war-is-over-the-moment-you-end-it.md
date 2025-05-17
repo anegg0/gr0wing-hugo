@@ -20,19 +20,19 @@ tags:
 ### The unique art of losing
 
 I spotted a high score notification on a friend&#8217;s Facebook feed today.  
-It said: &#8220;I got 53235 points while escaping from a Giant Demon Monkey in Temple Run 2. Beat that!&#8221;
+It said: "I got 53235 points while escaping from a Giant Demon Monkey in Temple Run 2. Beat that!"
 
 I love temple run, I play it in the bathroom when the business that got me there takes too long.
 
 <!--more-->
 
-I tried to compliment that guy on his score by leaving him a comment saying that &#8220;I had never heard of the Giant Demon in temple run&#8221; and that &#8220;I should try harder next time I play&#8221;.
+I tried to compliment that guy on his score by leaving him a comment saying that "I had never heard of the Giant Demon in temple run" and that "I should try harder next time I play".
 
 What an awkward way of being nice. People often freak out when I try to be friendly, anyway.
 
-Why didn&#8217;t I just say: &#8220;Kudos!&#8221; or &#8220;Wow!&#8221;
+Why didn&#8217;t I just say: "Kudos!" or "Wow!"
 
-Of course, he took it the wrong way and started arguing that it wasn&#8217;t a &#8220;Giant Demon&#8221; but a monkey.
+Of course, he took it the wrong way and started arguing that it wasn&#8217;t a "Giant Demon" but a monkey.
 
 Like it mattered whether he won over a Demon or an Iguana or a hip of Radioactive crab manure…?
 
@@ -44,7 +44,7 @@ And I&#8217;m 40. And after 20 years practicing meditation, that&#8217;s what I 
 
 &nbsp;
 
-All I had to do was to say: &#8220;Oh, OK, that&#8217;s right, congrats for your score BTW!&#8221;.
+All I had to do was to say: "Oh, OK, that&#8217;s right, congrats for your score BTW!".
 
 That would have been the end of it.
 

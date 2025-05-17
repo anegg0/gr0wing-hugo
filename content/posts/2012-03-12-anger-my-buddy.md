@@ -24,7 +24,7 @@ The following is a simple approach to anger management. It might not be the righ
 
 #### Rule #1: When anger shows up, welcome it like a friend
 
-When you realize you&#8217;re getting mad, visualize your anger like it’s a friend. A difficult friend. Act exactly as you would with a real friend who just discovered their partner cheated on them. Usually, when friends are in trouble you open your door to them, right? Be just as kind with your own anger. Don&#8217;t kick it out of your mind, since that &#8220;rejection reflex&#8221; creates more anger. Don&#8217;t let it outside in the cold, but instead invite it home. Now that you&#8217;ve made room for your anger, here&#8217;s a list of actions you might consider:
+When you realize you&#8217;re getting mad, visualize your anger like it’s a friend. A difficult friend. Act exactly as you would with a real friend who just discovered their partner cheated on them. Usually, when friends are in trouble you open your door to them, right? Be just as kind with your own anger. Don&#8217;t kick it out of your mind, since that "rejection reflex" creates more anger. Don&#8217;t let it outside in the cold, but instead invite it home. Now that you&#8217;ve made room for your anger, here&#8217;s a list of actions you might consider:
 
 #### Rule #2: Just don&#8217;t move
 
@@ -34,7 +34,7 @@ _Wrapped up: Don&#8217;t take action when you&#8217;re angry_
 
 #### Rule #3: Feel it!
 
-If you&#8217;ve managed to apply Rules #1 and #2, then you&#8217;re ready for practicing mindfulness right now. Applying mindfulness in that situation means being completely aware of what&#8217;s going on inside of you. A good way to do that is to run a &#8220;body scan,&#8221; focusing on each area of your body one by one:
+If you&#8217;ve managed to apply Rules #1 and #2, then you&#8217;re ready for practicing mindfulness right now. Applying mindfulness in that situation means being completely aware of what&#8217;s going on inside of you. A good way to do that is to run a "body scan," focusing on each area of your body one by one:
 
 &#8211; Feel what&#8217;s happening in your guts.
 
@@ -56,7 +56,7 @@ _Wrapped up: When angry, don&#8217;t believe in what you&#8217;re thinking_
 
 #### Rule #5: It&#8217;s not so serious, don&#8217;t worry!
 
-One of the main advantages of visualizing anger as another person is that you don&#8217;t identify with it. You stop thinking it&#8217;s serious. Seeing anger from a distance will break its spell. Why not think of it as a puppet sitting on your shoulder? Why not call it  &#8220;asshole&#8221; or &#8220;gonzo,&#8221; for instance? Anything will do as long as it makes you aware that you&#8217;re dealing with a temporary emotion, something that is not real and not serious.
+One of the main advantages of visualizing anger as another person is that you don&#8217;t identify with it. You stop thinking it&#8217;s serious. Seeing anger from a distance will break its spell. Why not think of it as a puppet sitting on your shoulder? Why not call it  "asshole" or "gonzo," for instance? Anything will do as long as it makes you aware that you&#8217;re dealing with a temporary emotion, something that is not real and not serious.
 
 _Wrapped up: Don&#8217;t take anger seriously, stick a red nose on its face_
 
@@ -70,4 +70,4 @@ The good news is you don&#8217;t need them to feel fine even after being angry i
 
 _Wrapped up: Don&#8217;t be ashamed of being angry, be your own friend instead_
 
-To finish, I need to tell you that all the above is a VERY condensed version of various approaches, mostly derived from Buddhism. If you apply this &#8220;anger management in a nutshell,&#8221; I&#8217;m sure you will want to deepen your practice, and I&#8217;ll rejoice if you do :)
+To finish, I need to tell you that all the above is a VERY condensed version of various approaches, mostly derived from Buddhism. If you apply this "anger management in a nutshell," I&#8217;m sure you will want to deepen your practice, and I&#8217;ll rejoice if you do :)

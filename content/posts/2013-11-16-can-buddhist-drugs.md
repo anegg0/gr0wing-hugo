@@ -53,7 +53,7 @@ Here&#8217;s how the process is described: drug would force the release of posit
 
 ## Invisible casualties
 
-Everybody knows how drug abuse can ruin the brain and internal organs, that area is well covered by modern medicine. But Tibetan Buddhism has a branch that addresses the &#8220;subtle body&#8221;, its tenets are very close to acupuncture and Ayurveda. 
+Everybody knows how drug abuse can ruin the brain and internal organs, that area is well covered by modern medicine. But Tibetan Buddhism has a branch that addresses the "subtle body", its tenets are very close to acupuncture and Ayurveda. 
 
 According to Tibetan masters teaching in this field, drugs do serious damage to the energetic part of the body. The consequences can be terrifying for mental and physical health, and they affect drugs users for the long haul.
 

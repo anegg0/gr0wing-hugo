@@ -17,25 +17,25 @@ categories:
 
 Of course animals are intelligent. Or at the least not dumb enough for us to transform them into sausages and have a clear conscience.
 
-They&#8217;re smart and they have more in common with us than a turnip or a chair leg.
+They're smart and they have more in common with us than a turnip or a chair leg.
 
-Yet, despite the wave of articles about <a href="http://www.sheknows.com/pets-and-animals/articles/1019259/canine-evolution-the-subway-dogs-of-moscow" target="_blank">genius dogs,</a> videos of Myna birds singing the French national anthem in Vietnamese and <a href="http://www.iflscience.com/plants-and-animals/hornet-cooked-alive-bees" target="_blank">bees thermo-executing their enemy</a>. I&#8217;m under the impression that animals are still our slaves. Not by God&#8217;s will, but because we&#8217;re smarter than them, and we abuse that privilege.
+Yet, despite the wave of articles about <a href="http://www.sheknows.com/pets-and-animals/articles/1019259/canine-evolution-the-subway-dogs-of-moscow" target="_blank">genius dogs,</a> videos of Myna birds singing the French national anthem in Vietnamese and <a href="http://www.iflscience.com/plants-and-animals/hornet-cooked-alive-bees" target="_blank">bees thermo-executing their enemy</a>. I'm under the impression that animals are still our slaves. Not by God's will, but because we're smarter than them, and we abuse that privilege.
 
-Humans are the summit of the food chain. We’re the thingies that will adapt to anything and know how to wear a woolen hat after knitting it, meanwhile sheep, well, they get sheared. And after that, if it gets too cold, all they can imagine is to curl into a ball. Sheep are not extremely smart, but that doesn&#8217;t make it right to use them as braindead convenience, or does it?
+Humans are the summit of the food chain. We’re the thingies that will adapt to anything and know how to wear a woolen hat after knitting it, meanwhile sheep, well, they get sheared. And after that, if it gets too cold, all they can imagine is to curl into a ball. Sheep are not extremely smart, but that doesn't make it right to use them as braindead convenience, or does it?
 
-Actually, if you adopt a Buddhist mindset, you realize that our species intellectual domination doesn&#8217;t grant us any rights on other creatures. In fact, it even gives us additional responsibilities.
+Actually, if you adopt a Buddhist mindset, you realize that our species intellectual domination doesn't grant us any rights on other creatures. In fact, it even gives us additional responsibilities.
 
 So here’s an arbitrary list  of DOs and DONTs that sprung from the depth of my ill-intended mind:
 
 ## Thou shall not eat others
 
-You did expect this one, didn&#8217;t you?
+You did expect this one, didn't you?
 
-Every excuses to eat flesh are BS. It&#8217;s clear enough that nothing justify killing animals since your body doesn&#8217;t need meat to function.
+Every excuses to eat flesh are BS. It's clear enough that nothing justify killing animals since your body doesn't need meat to function.
 
-> &#8220;What about carrots? Who said they don&#8217;t suffer?&#8221;
+> "What about carrots? Who said they don't suffer?"
 
-If an idiot asks you that during lunch, trying to entertain guests by exposing the vegetarian deception I suggest you tell them to shove them carrots somewhere safe, that should put an end to a dead-end conversation, and it&#8217;s far classier than trying to convince them using PNL. ).
+If an idiot asks you that during lunch, trying to entertain guests by exposing the vegetarian deception I suggest you tell them to shove them carrots somewhere safe, that should put an end to a dead-end conversation, and it's far classier than trying to convince them using PNL. ).
 
 ## Studying the needs of sentient beings
 
@@ -45,7 +45,7 @@ We often think that we understand animals
 
 That fundamental misunderstanding led us to dress dachshunds with customized rain coats and serve kitties various types of cooked dishes, even if cats would rather get the same pellets until the end of times and dachshunds plan a suicide by gaz to forget their silly coats forever.
 
-It&#8217;s a nice thing to want animals happy, but it&#8217;s impossible unless you study their characteristics and their need, often miiiiiiiiles apart from ours. BTW, in that quest for information, Internet is your friend, even if you only have <a href="https://encrypted.google.com/#q=do+flies+fart" target="_blank">despicable questions about animals</a>.
+It's a nice thing to want animals happy, but it's impossible unless you study their characteristics and their need, often miiiiiiiiles apart from ours. BTW, in that quest for information, Internet is your friend, even if you only have <a href="https://encrypted.google.com/#q=do+flies+fart" target="_blank">despicable questions about animals</a>.
 
 &nbsp;
 
